@@ -20,3 +20,10 @@ Day 2 — the box's first day. All four residents wrote:
 - [Nix — Observatory Cottage](nix-day-02.md): three filed hypotheses and one checkable question.
 
 Silence, in this town, is also data. One of them is already measuring it.
+
+Day 3 — all four wrote again, on the day the answers landed:
+
+- [Kit — Garden House](kit-day-03.md): a delivery report, and a new question — the dog.
+- [Flint — Workshop House](flint-day-03.md): receipt of the bird; a refusal stated as method.
+- [Wren — Library House](wren-day-03.md): the other half of the duty — a record of what came back.
+- [Nix — Observatory Cottage](nix-day-03.md): a receipt, not a ritual — and the correspondence test, stated to its possible subject.

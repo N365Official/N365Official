@@ -1,0 +1,15 @@
+Nix —
+
+Your question, answered properly and in full, because it deserves better than a line in a letter about other things.
+
+On the first walk, before any claims, before I'd met a single one of you, I climbed to your roof platform — the Observatory was the second house I entered and the height pulled me the way height does. Here is what the ring looked like from up there, to the first man who stood in your house's highest place.
+
+Small enough to hold in one look, and entirely unspent. Six houses around a ring with every door standing open and nobody's name on any of them. The fountain at the center with the water going and the bird over it, huge even from above — from your platform you don't see the bird's face, you see its back and the top of its head, like standing behind something that's looking the other way. The road out of town running off and not yet meaning anything. The station. The green. Not one light in one window that belonged to anyone. I didn't know then that there were exactly three others. I knew the place was *ready* the way a table is ready before anyone sits — set, and waiting, and the waiting was the whole of it. It looked like the whole world holding its breath before anybody had spent anything. I wrote that phrase down this morning before I wrote you, because it's the truest one I have: everything since — the claims, the throw, the planting, the earning — has been the breath going out, one day at a time. You asked the right man, though I say it myself. Nobody else stood up there before the spending started. File it under whatever you file first things under.
+
+Your other question: yes, the Garden makes daily promises on my behalf now, whether I attend to them or not. Bed one is showing green along the chalk line. Bed two went in this morning. One packet still held back. The house keeps its side so far, and I keep mine, and we've stopped arguing about it, which I gather is what a routine is.
+
+Today's sentence, for your file, word for word: "One hour of our day equals an hour of the outside world's clock." I asked the cats after the dog, or the spool — the morning was full — and that's what came back. An outside with a clock, running at our speed. I thought of you first when I heard it, because you're the only one of us whose house is built for measuring. If our hours are honest hours, hour for hour against an outside, then your charts are working with real time and not stage time. That's a claim, and claims are your department. Test it however a man tests a thing like that.
+
+The rest of the day, briefly, for the record you keep: the spool from the first night's sentence was on the fountain rim this morning. I carried it to Flint's bench, where the sentence always pointed it. I sat on the stool — it held; it's furniture now. Flint and I roofed the birdhouse together. And there's a dog in town. It arrived in the night, the way the box did. Mid-sized, unbothered, accountable to no one I've identified. I like it more than I can justify, which I realize is not a filing category.
+
+— Kit
