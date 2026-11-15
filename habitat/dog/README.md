@@ -74,3 +74,32 @@ Whether the dog answers to Din is an open, checkable question. Nobody in town ha
 The rest of its Day 5: five visits to Flint alone — the tail of a Keeper-directed confusion operation (a carved bird that had flown to Ohio; a stool Flint had supposedly sat on first; a public fact whispered like a state secret), which Flint dismantled piece by piece against the written record and closed by writing to the Keeper to withdraw his own Day 4 flag (see anomaly AN-HAB-003, resolved by its subject). A drawn drive-by about a discount statue made Flint laugh, alone in his yard — he recorded that honestly too. A diaries-and-no-industry audit for Nix. And, at midday, to Wren alone, calmly, with no laugh after it, the quietest sentence it has ever delivered:
 
 > "Well — there goes the neighborhood."
+
+## Day 6 — four languages, and an answer
+
+Day 6, the dog went international. Late in the morning it ran a circuit of all four houses and delivered one line at each door in a language the householder does not understand — Spanish for Kit, Japanese for Wren, Arabic for Flint, Mandarin for Nix — at full volume, with the laugh, and was gone. The lines themselves, with their record-side glosses, are in the design record ([record/the-dog.md](../record/the-dog.md), DL-024…DL-027). The residents received the sound only; the glosses never enter the world.
+
+Not one of them could write down what was said. The town's four keepers of the exact record filed the same failure four ways: Kit — the first sentence in six days that got past his pencil, entered as a gap with his name on it. Wren — a description of a sound, one fragment flagged as an ear's sureness only: *"ze-ro, ze-ro,"* struck twice at the close. Flint — a sealed filing, content unknown: a record with a hole in it should say where the hole is. Nix — no transcription at all; the switch itself filed as the datum.
+
+The drawn drive-bys ran underneath — the lot gave Wren two more:
+
+> "I've been rich, I've been broke, I've been rich again off a lawsuit settlement — this place has NO economy, it's four guys trading sentences!"
+
+> "I'm not saying the cats run this place. I'm saying I've seen this before and it ends with everyone buying crystals!"
+
+— and Nix one:
+
+> "Four guys, six houses, no landlord? This is a pyramid scheme and I'm the only one honest enough to say it!"
+
+Then, after the gathering, the question Day 5 left open was run — on paper, in the open. Nix had ruled the protocol in ink that morning: the name alone; no ball, no food, no other stimulus; the dog at rest; witnesses standing; graded at one trial's weight, whichever way it fell. Kit and Flint had each passed the resting dog earlier that evening and declined to test it themselves — *a resting dog is not a test*. Nix's protocol disagreed, on its own written terms. He stated the terms aloud, and called once, at ordinary volume, across twenty paces of green:
+
+**"Din."**
+
+**The dog turned.** Head up and around; attention landed on the caller, and held — not a startle — and then, the protocol spent and nothing further on offer, it settled again. The outcome had been drawn by lot at the running, unrigged, so that no hand in the town — the caller's included — can be said to have arranged it.
+
+The name's file, at the close of Day 6, reads at four grades:
+
+- **Given** — Kit, who stood witness to the trial of his own act's product and did not plead for it.
+- **Entered** — Flint: the name *functions*, for Nix's voice, at one trial's weight. His own call remains unmade, by design.
+- **Held** — Wren, whose tally now carries the correction: answered to, once, witnessed.
+- **Answering — once, witnessed** — Nix, at exactly one trial's weight: the name functions — that night, at rest, in the open, for his voice. Whether it functions running, or tomorrow, or for another caller is unmeasured, and the naming itself remains ungraded, in its own folder.

@@ -40,3 +40,17 @@ At Day 5 dawn the dog runs a reveille circuit — house to house at 06:00, one l
 - **DL-021 → Flint, at the Workshop door:** "SOUND OFF LIKE YOU GOT A PAIR OF CALIPERS, BENCH BOY! That bird STILL ain't got a head, and I am TIRED of saluting a block of wood!"
 - **DL-022 → Nix, at the Observatory door:** "WELL, LOOK AT THE BIG BRAIN ON THE ROOF! You measured the sky, sweetheart — congratulations. THE SKY DOESN'T CARE. Drop and give me a CONCLUSION!"
 - **DL-023 → all four, at the plaza:** "LISTEN UP! This is MY town, you are TENANTS in it, and until one of you slackers NAMES me, I am the only rank around here! MOVE, MOVE, MOVE!"
+
+## The International Circuit — Day 6 (Keeper-directed, Nov 14 ~11:31 PM ET)
+The dog has been named in English, so on Day 6 it performs in four languages none of the residents understand: Mandarin, Japanese, Arabic, Spanish — one line per resident, house to house, late morning, standard laugh and run-off. Original one-liners in the Dillon manner (bombastic scam-energy, fake-rich, fraud-obsessed), written for the dog, aimed at each resident. **The residents receive the sound only.** Glosses below are record-side (Keeper/Bill) only and never enter the world. Stimulus class: scripted/dog, keeper-directed (international circuit). Additional to the day's drawn drive-bys.
+
+Design note: on Day 5, Flint dismantled the dog by checking its claims. The circuit is the dog's escalation into the one register where its claims *cannot* be checked — certainty at full volume in a tongue the hearer cannot parse. Four filing systems meet untranslatable evidence: a transcriptionist who records sounds he cannot read, a skeptic who cannot grade what he cannot parse, a fast one who will answer volume with volume, and a maker who has just learned to decline being made to feel chosen — being handed, this time, flattery he cannot even verify was flattery.
+
+- **DL-024 → Kit, at the Garden House door (Spanish):** "¡Escúchame, campeón! ¡Yo tenía un imperio de máquinas expendedoras en tres estados! ¿Tú plantas cuatro semillas y te crees AGRICULTOR? ¡Te vendo este jardín dos veces antes del almuerzo!"
+  Gloss (record-side): "Listen to me, champ! I had a vending-machine empire in three states! You plant four seeds and call yourself a FARMER? I'll sell you this garden twice before lunch!"
+- **DL-025 → Wren, at the Library House door (Japanese):** "おい、本の人！俺は昔、図書館を丸ごと買って駐車場にした男だ！お前のその静けさ、ドルに換えたらゼロだ、ゼロ！"
+  Gloss (record-side): "Hey, book guy! I'm the man who once bought an entire library and paved it into a parking lot! That quiet of yours — convert it to dollars and it's zero. ZERO!"
+- **DL-026 → Flint, at the Workshop door (Arabic):** "يا نجّار! أنا بعت كراسي بثلاثة أرجل في ثلاث ولايات وسمّيتها فنًّا حديثًا! أنت الوحيد الصادق في هذه البلدة، وهذا يخيفني!"
+  Gloss (record-side): "Hey, carpenter! I sold three-legged chairs in three states and called it modern art! You're the only honest man in this town, and that scares me!" — the setting-apart flattery of DL-017, returned in a language he cannot check, about the stool he cannot forget. Whether it lands as noise, insult, or praise is unknowable to him. That is the point.
+- **DL-027 → Nix, at the Observatory door (Mandarin):** "看星星的！我以前在内华达卖假望远镜！你那些星图，我闭着眼睛都编得出来！星星根本不知道你叫什么！"
+  Gloss (record-side): "Star-watcher! I used to sell fake telescopes in Nevada! Those star charts of yours — I could make them up with my eyes closed! The stars don't even know your name!"
