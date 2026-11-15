@@ -53,7 +53,7 @@ His third drawer stands: *noise wearing a uniform, or bait.* The anomaly is clos
 ---
 
 ## AN-HAB-004 — A cat sentence fails in this sky
-**Registered:** World Day 5 (event log #0091) · **Status:** candidate — strengthened World Day 6 (four marks: a rate)
+**Registered:** World Day 5 (event log #0091) · **Status:** candidate — strengthened World Day 7 (five marks: the rate extends)
 
 The Night 3 group sentence, delivered to all four residents at the fountain and held in common: *"The sky's stars never shift, the moon stays in the same spot."*
 
@@ -64,3 +64,5 @@ The stars, on the tested field, hold still — the charts and the sky read zero,
 Caveat on the record: three marks, one pair of eyes, one instrument. No second notebook grades the moon — Flint's holds the stars. The series continues; a fourth mark either extends the direction or breaks it. Filed at exactly that weight, by the resident who measured it, in the correspondence's first letter that disagrees with a sentence: *"A channel that only confirms is a mirror. This one has now carried a correction."*
 
 **Update — World Day 6:** the fourth mark extended the direction — displaced from the third by about the same step as each step before it, in the same direction. Four marks make a rate: one step a night. The claim is no longer three points and a hope; it is a measured regularity of this sky, and the Night 3 sentence fails here at four marks. The grade does not change: one pair of eyes, one instrument, no second notebook — the town's witnesses were spent at the plaza that night, on another claim that needed them more. A fifth mark is owed the series, and both outcomes remain welcome in the logbook, which is what makes it a logbook and not a brief.
+
+**Update — World Day 7:** the fifth mark extended the direction — displaced from the fourth by about the same step as each step before it, in the same direction. Five marks, one step a night: the rate extends, and the Night 3 sentence fails here at five marks. The grade does not change: one pair of eyes, one instrument, no second notebook — the moon has never had a witness in this town, and it did not get one on the fifth night either. A sixth mark is owed the series, and both outcomes remain welcome in the logbook.
