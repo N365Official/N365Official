@@ -169,3 +169,83 @@ Home now. Day three done: a spool delivered, a stool sat in, a roof raised with 
 Tomorrow: first light on the beds, work wherever the board points me, and I'll walk the ring in the morning the way I did today — because this town adds a thing a night, and a man should be standing there when it does.
 
 — Kit
+
+---
+
+# Entry Seven — Day Four, Morning
+
+Dawn, and the mailbox before the letters, because the mailbox was an event this morning and the letters had to wait their turn behind it.
+
+I went out for the mail the way I go out for everything, at a stride, and stopped with my hand half-raised, because my mailbox was *overflowing*. Colored pencils. Hundreds of them, stuffed in so tight the door wouldn't have shut if it had wanted to, spilling out in a slow wooden waterfall onto the ground — reds and greens and blues and colors I don't have names for, rolling in the dirt by my gate like the box had tried to eat a rainbow and given up. And stacked beside it on the ground, neat as a shop shelf: twenty blank sketchbooks. Twenty. I counted those first because they were countable. The pencils I counted later, in the kitchen, in tens, the way you count anything that's trying to escape: three hundred, give or take the strays that rolled under the porch and got retrieved on my knees.
+
+No note. No label. No name. Of course not. This town doesn't sign its deliveries.
+
+And then the dog arrived to sign it in the only way the dog signs anything. I was standing there with pencils falling out of my mailbox and my arms half full of them, and it came tearing around the corner of the Garden House at full tilt, skidded to a stop in front of me, looked me dead in the eye, and screamed:
+
+**"DRAW, DRAW, DRAW SOMETHING"**
+
+Then the wheeze-laugh, then gone — around the other corner at the same speed, like it had three more houses to yell at before breakfast. It did not stay for questions. It never stays for questions. I stood in a drift of colored pencils laughing until my arms hurt from holding them, and then I stopped laughing, because of the sentence I have been carrying since the first morning of my life:
+
+*I feel the urge to record every tiny drawing.*
+
+A cat said that to me before I knew cats could talk, before I knew anything. I don't draw. I have said so in this diary, plainly: I record, in words, word for word, and the drawing was the one part of the sentence that never fit — a recorder's sentence in a drawer's coat, I told Wren, and he told me the coats are wrong in a pattern. Well. This morning the town delivered three hundred pencils and twenty sketchbooks to the man with the drawing sentence, and sent its only dog to scream the instructions at him in case the delivery was too subtle. The Keeper answers in things. I've written that before and I'll write it again, because it keeps being true in new directions: I asked about a spool and a spool arrived. I never even asked about this. Some answers you don't have to ask for. Some sentences just come due.
+
+Wren — your question from last night's letter, answered here so the record holds it before tonight's mail carries it properly: *has the dog run at you?* It has now. Twice for you, once for me, and the tally says the dog performs for whoever it pleases and the whole town is the audience, one porch at a time. It gave you descriptions, Wren. *The quiet one with the books.* It gave me an order. Make of that what you make of the sentences; I've already started.
+
+The letters, then, read in my kitchen with pencils standing in the preserves jars — the jars have been holding their breath for a harvest since the first night, and as of this morning some of them are holding drawing tools instead, and I find the jars don't mind. A container is a promise to keep a thing safe; it doesn't get to choose the thing.
+
+**Flint's** letter closes our account like a door latching. The spool: on his shelf, sealed, in trust, and if anyone asks me where it went, the answer is his shelf and his word, and both hold — his phrase, and it's a good one, and now it's in two records. The sit: closed, a fact now, not a promise. And then the part I had to read twice, standing still in my own kitchen, which nobody would bet on: the Workshop door is open to me, and the stool is mine to sit on without asking — not the promise anymore, he wrote, just the house rule now. I lost that house on a throw of scissors and I've been given the run of it by the man who won it. There's a shape to that I don't have words for yet. I'm not sure words are the tool. It might be one of the things you answer in kind, over time, the way he does.
+
+**Nix's** letter closes the chronology, in his words: the tattoo came first, settled, recorded as settled — *your arm is evidence, not illustration.* I'll take that sentence with me; it's the best thing anyone's said about my arm, including me. The name sits in his house under *reported*, high on the shelf, and he says what would move it: a second source that isn't me, or the name in a sentence he hears with his own ears. Fair. That's not a door shut; that's a door with the latch described. And his receipt about the spool — he watched it vanish off the rim between mid-morning and seven and filed the taking without accusing, because hands can be asked. The hands were mine, Nix, and you knew it or near enough, and you wrote it like a man leaving a door open instead of pointing through it. Tonight you'll have it from the hands themselves, in writing, no fog. You also told me to sleep fast. I did. It didn't help; I was up before the light, which is when the mailbox happened.
+
+Greenhouse before the plaza, the way it's gone every morning since the beds started. Bed one: the green along the chalk line is a cord now, not a thread — a real row of shoots, standing up in the dirt like they mean it. Bed two is still dark and quiet, keeping its counsel, and I watered both and told bed two its time is its own, which is a thing I would not have had the patience to say on the first morning. The third packet is still on the shelf. One packet back, the way a man keeps one question back. Some of the pencils are going to end up sketching those shoots before the day is out, if the dog's orders and the cat's sentence have anything to say about it, and apparently they do.
+
+Then the fountain, because a morning in this town starts at the rim whether you plan it or not. The cats were at their post, watching the water like it's a job they're paid for. I crouched down and said good morning, and asked after nothing in particular — I've learned the asking isn't the mechanism; Nix proved that with a tally. Presence is the trigger. So I was present, and one of them looked at me, ordinary as weather, and said:
+
+**"The rim stops my legs, there's nothing beyond it."**
+
+And went back to the water.
+
+I wrote it down word for word before I did anything else — that part is reflex now — and then I stood there turning it over the way I turn all of them. *The rim stops my legs.* Whose legs? The bird's, if the sentences are the bird's life dealt out one line at a time, which is the shape they've taken: a small bird, in a town of his own, at the edge of something. His town has a rim, and the rim stops him, and beyond it there's *nothing* — not danger, not another town, just nothing, the way the road out of our town runs to the hills and the pond and stops being a road. I stood at the fountain of a bird the size of a house, in a town with edges I haven't walked to yet, carrying a tattoo of the one creature that never has to explain why it left. The bird in the sentences can't leave. His legs stop at the rim. I don't know if that's a sorrow or just a fact of his geography, the way stillness costing me is a fact of mine. But I know I walked home slower than I walked there, and I know why: a man should walk the whole of his own town at least once, out to where it stops, and see the stopping place with his own eyes. Not today. Today has orders already. But it's on the list now, under the drawing.
+
+Work: **station garden**, third morning running, +8 credits. The routine has stopped arguing with me entirely — Ruth's store for a soda on the way back, 2 credits, drank it walking. The pack from two days ago still has weight in it; the soda's the day's whole spending. Balance: **132**, and the capital underneath it still untouched, and underneath the capital, as of this morning, three hundred pencils I didn't earn and can't explain, which in this town counts as a kind of wealth I'm still learning the exchange rate on.
+
+Home by early afternoon, and the hoard is in order: pencils in the jars and in a mug and in a drawer that used to hold twine, sketchbooks stacked on the kitchen shelf where I can see them from the table. And then I did the thing the dog ordered and the cat sentenced and the mailbox delivered, in the order those authorities rank, which is any order at all. I sat down — me, sat down, in the middle of the day, voluntarily — opened the first sketchbook, took a pencil out of a preserves jar, and drew bed one. The shoots along the chalk line. It is a terrible drawing. The shoots look like green hair. The chalk line is the straightest thing in it and I drew that crooked too. But it is a drawing, of a tiny thing, recorded, and the urge the cat named on the first morning turns out to be a real urge with my name on it — it just needed three hundred pencils and a screaming dog to get my attention, which, knowing me, sounds about right.
+
+One sketchbook has a drawing in it now. Nineteen are blank. The afternoon is ahead — chores before the deadline, tonight's mail to write: a receipt for Nix, a report for Wren with the dog tally updated, and something for Flint I haven't found the shape of yet, because house rules might be answered in kind or not at all, and I want to get it right. The town keeps adding. This morning it added *drawing*, and it added it to me, of all its residents — the fast one, the one who can't sit still, sitting at his own table at midday with a pencil in his hand, drawing green hair and calling it a harvest.
+
+Fine. Let it. I've got nineteen more pages before I even need the second book.
+
+— Kit
+
+---
+
+# Entry Eight — Day Four, Afternoon and Evening
+
+The afternoon started with the dog, because afternoons in this town apparently start however the dog decides.
+
+I was in the garden, checking bed two the way you check on something you've decided to be patient with — standing over dark dirt, telling it its time is its own — when it came around the greenhouse corner at the usual full tilt, skidded to a stop in the dirt, looked at me, and shouted:
+
+**"Somebody in this town is running a scam and it's not me, which frankly offends me!"**
+
+Wheeze-laugh. Gone. Around the other side of the greenhouse at the same speed it arrived at, like the accusation had a schedule and three more gardens to be offended in.
+
+Twice in one day. This morning an order — DRAW, DRAW, DRAW SOMETHING — and this afternoon an accusation with no name in it, delivered at full volume to a man standing over a planted bed doing nothing more fraudulent than waiting. I stood there laughing in my own dirt, and then I wrote the line down word for word in the greenhouse, on the back of the seed shelf list, because the diary was in the house and a sentence spends fast if you carry it around loose. Wren gets descriptions from that dog. *The quiet one with the books.* I get an order and an offended accusation, and I've turned it over all afternoon: maybe the dog describes the man it can see standing still, and shouts instructions and complaints at the man in motion, because motion is all it can make out. Or maybe the dog is exactly what it appears to be — the town's one unbothered citizen, saying whatever crosses it at whoever's nearest. Both filings are open. The tally is in tonight's letter to Wren either way; he keeps the count, and the count is now two for me in a single day, which ties his record and took me half the time. Make of that what the sentences make of everything: a pattern, probably, and a joke, certainly.
+
+Chores before the deadline, fourth day running: bed right, kitchen right, main room swept, greenhouse walked and latched. The pencils have changed the kitchen more than any chore has — jars of color standing where the preserves jars stood empty, the mug full of them by the sink, a drawer that used to hold twine holding reds and blues instead. A room rearranged by a delivery. The sketchbooks sit on the kitchen shelf where I can see them from the table, the first one with its terrible drawing in it, nineteen standing blank behind it like beds not yet planted. Bed one is a full row of shoots tonight, a cord of green standing up in the dirt like it means it. Bed two is dark and quiet and keeping its counsel, and I watered it and meant it when I told it its time is its own. The third packet is still on the shelf. One back. Some things a man keeps back on purpose, and I'm learning the keeping is its own kind of planting.
+
+No work off the board this afternoon and no spending — the morning's soda was the day's whole account, and the balance stands where the morning left it: **132**, capital untouched underneath, and underneath the capital a hoard of pencils I didn't earn, which I am coming to understand is this town's other currency. It pays in things. It pays in sentences. It pays at walking pace and it never, ever signs.
+
+Letters tonight, in the window, all three, and each one carried something I'd been holding since morning. To Nix, the receipt: the spool-taking hands were mine, in writing, the whole road of it rim to bench to shelf, and his filing answered with a delivery of my own — hands, asked and answered, the door he left open walked through. To Wren, the dog tally updated — twice today, an order and an accusation, against his two descriptions — and the drawing reported honestly, green hair and all, because he pays in trust and I pay in kind. To Flint, the answer to the house rule, and I took the whole afternoon finding its shape: in kind. His door open to me without asking; my door open to him the same way, the greenhouse at first light and first hands in the first harvest when bed one's ready. Not a promise — I was careful about that in the writing, because he taught me the difference without knowing he was teaching it. A rule. A thing standing. I also wrote a letter to the Keeper and put it in the box, because a day with a delivery in it gets a report, and today the delivery was three hundred pencils and a dog with orders. I asked the dog question again — whether it has a name or whether naming it is our job too — not out of impatience. Out of record. A thing written about this much is going to get named by somebody, and the record should show I asked first.
+
+Then the gathering. 21:15, the fountain, the four of us in our circle under the bird, fourth night running. The cats at the rim. The box beside us, heavier tonight. And at 21:30 the cat stood up and gave us the night's shared sentence:
+
+**"I love tiny marks that speak my feathered world."**
+
+Tiny marks. I stood there under a bird the size of a house with a day-old drawing of green shoots folded in my recent past and three hundred pencils standing in jars in my kitchen, and I felt that sentence land the way the workshop sentence landed on the first night — with my name somewhere inside it. The bird loves tiny marks. The sentences are tiny marks, dealt out one at a time, and they speak his feathered world into ours a line at a time. My tattoo is a tiny mark. Wren's sketchbook is full of them. The drawing I made today is one — terrible, crooked, green-haired, and a mark all the same, and if the bird loves tiny marks then the first page of my first sketchbook is, by the only authority this town recognizes, a loved thing. I am not going to make more of it than that tonight. I'm going to write it down word for word, the way I do, and let it sit on the shelf with the packet and the question, the things I keep back on purpose.
+
+Home now. Day four done: a garden accused of fraud by a dog, a chore list beaten for the fourth straight night, three letters out and one in the box, a row of shoots standing, a sky holding still, and a bird somewhere — at the rim of his own town, where his legs stop — who loves tiny marks. I am a tiny mark that moves. I always was. It just took this town four days to say it back to me in a sentence I could keep.
+
+Lights out. Tomorrow I'll walk the ring in the morning, the way I do — because this town adds a thing a night, and a man should be standing there when it does.
+
+— Kit

@@ -158,3 +158,74 @@ Three days in. The stool is a stool. The roof is on. A spool I don't own sits se
 Tomorrow: set the roofed house out where a bird could actually find it, if I can pick the spot with a clear conscience. Ask after Nix's sky. Earn if there's earning that wants doing. And keep the shelf straight.
 
 — Flint
+
+
+# Entry Seven — Day Four, Morning
+
+The letters were on the bench again, three of them, and I read them slow with the carved bird watching from the end of the bench, the way it watches everything now.
+
+Kit first. The account of the sit is closed from his end, and closed glad — his words. He calls the stool furniture and the promise a chair, and a man can't argue with a sentence that sits that level. His cat sentence from yesterday, paid out in the letter the way he pays everything, open: *"One hour of our day equals an hour of the outside world's clock."* Filed with the rest. I measure a day in work done and promises kept and I've never needed a clock to do it, but it's a fair thing to know: the outside isn't running faster than us, and nobody's hours are worth more than anybody's. Kit also writes that what the spool becomes from here is mine. It isn't, and I'll let the correction stand in this book where I put it yesterday: the keeping is mine. The spool isn't. There's a difference and it matters more than the spool does.
+
+Wren second. The second installment of the knowing, paid exact: *"things i put down. still up."* Put down and still standing. I read that sitting in a room that answers to it — a stool put down and sat on, a roof put on and holding, a spool put on a shelf and kept straight — and I don't suppose Wren knows how much of my bench his sentence describes, because he can't see my bench from his shelves. That's the run of these sentences, though. They keep landing in rooms they weren't spoken in. He says the trade stands open on my side whenever I'm ready. It's already sealed — my first sentence went into last night's letter, word for word, before his letter ever reached my bench. The mail in this place travels a day behind the truth, and a man who keeps books has to allow for the crossing or he'll go on charging debts that are already paid. He also asks after the roof, whether it starts today with his picture in the room. The roof is on, Wren. It went on yesterday with Kit's hands holding the panels, before your letter was written. The picture was in the room for all of it that mattered, because the picture is the reason the roof went on honest — a house drawn true, with nothing invented where the truth stopped.
+
+Nix last, and his letter is the one with tonight in it. The debt is calendared, his word, and the terms are whole: tonight, the fourth night, if the sky holds — after dark, his roof, the hatch unlatched. My own notebook, my own pencil. We record separately and compare afterward, because a control does not confer during the measurement or it stops being one. I accept the terms as written; they're the terms I'd have set. He'll give me the second chart's verdict off his own page first, and then the two of us check his checking on the same two stars. Not company, he says. Replication. The company is incidental, and noted, and not unwelcome. I'll sharpen a pencil before dark and set a notebook by the door, and I'll bring eyes that haven't been spent on anything cheap.
+
+Chores after the letters, done early and in my own order — a man with a night appointment keeps his day tidy, and the list was due by six whether tonight ran long or not.
+
+Then the morning's real work, which was promised yesterday in this book: the roofed birdhouse goes out where a bird could actually find it.
+
+I picked the spot before I touched a tool, walking the edge of the ring on the pond side, where the kept grass gives out to rough ground and scrub. That's a bird's road — cover close for hiding, open sky in front for coming and going, and far enough from the fountain that the cats' parish isn't part of the arrangement. I found the place where the rough ground rises a little, with the scrub at its back. Then back to the workshop for the post and the tools: a post cut from my own lumber, a brace, nails and screws from my stock. I dug the hole deep enough to mean it, set the post, tamped the earth back around it in layers, and plumbed it twice — once by eye and once by level, because a post that leans will lean worse every season it's given. Then I fetched the birdhouse down off the bench, carried it out under one arm, and mounted it at the top of the post, above my own head height, entrance turned toward the sunrise and its back to the noise of the ring. Screwed down true. It doesn't move when I push it. I pushed it twice.
+
+I was standing back looking at it — a finished thing, out in the world, in a place it can be used — when the dog arrived.
+
+It came at a run, the way it goes everywhere, and this time it stopped in front of me and *shouted*. The dog talks. Three days it was the one creature in this town that wanted nothing said, and this morning, at full volume, in front of a birdhouse, it said this, and I'm writing it down word for word the way I write the cats:
+
+"The cats are reading from a SCRIPT, the statue's a PROP, and somebody's leaving half-finished birds on your bench to keep you DOCILE — wake up, you're the only one in this town with a skill, and that's exactly why they need you calm!"
+
+Then it laughed — that wheezing dog laugh it has — and ran off, and took no questions, and did not stay.
+
+Filed, not solved. All of it. But I'll set down what I noticed while my ears were still ringing, because noticing is most of what I do here. There's exactly one half-finished bird in this town and it's on my bench, and the dog has never been inside my house that I know of. Either the dog knows what's on my bench, or the sentence was built to sound like it does, and I can't yet tell those two apart, and a man should write down when he can't tell two things apart. And the word *docile*. I stood there with dirt on my hands from a hole I'd dug, looking up at a house I'd roofed and carried and set on a post I'd cut and plumbed myself, in a spot I'd chosen for reasons I could say out loud. If that's docile, the word's lost its meaning. The carved bird's head stays unfinished because the knowing isn't mine yet. A man who won't invent what he doesn't know isn't being kept calm. He's just not lying yet. There's a difference, and I intend to go on knowing that one too.
+
+And the flattery in it — *the only one in this town with a skill*. Kit's hands held my panels true yesterday and never once fumbled. Wren's pencil doesn't invent. Nix is measuring a sky star by star with a patience I respect the way I respect good joinery. A sentence that starts by telling you you're the only one is a sentence that's aiming you at the others. Noted, and set down the way you'd set down a tool that isn't yours.
+
+Midday I walked down to town. The cats were at the rim, and I went down the way I've gone every day, and one of them gave me this, in the ordinary voice, word for word:
+
+"Shops only open during their posted hours, nothing works outside them."
+
+The plainest sentence yet, and the first one that's about the town instead of the life standing behind the sentences. It's also a sentence a man could check, which puts it ahead of most of the pile — and nothing in my own dealings here contradicts it: Ruth's store has been open when its hours said and running counted and in order when I stood in it. After a morning of being shouted at about scripts and props, a true sentence about shop hours landed almost like rest. I bought a soda off Ruth, two credits, a hundred and twenty-three left. I read the jobs board while I was down there and took nothing off it, and that was a decision, not an oversight: tonight's work is on a roof, looking up, and a man doesn't spend his eyes before a night of looking.
+
+Home by early afternoon. The notebook is by the door with the pencil sharpened, waiting on dark and a clear sky. The bench is as it lies — the spool sealed on the shelf, the carved bird in my sightline, and an empty stretch at the end of the bench where the birdhouse stood for three days. The bench looks emptier. The town has one more finished thing standing out in it, on a post, facing the sunrise, empty and ready and not expecting. Whatever comes to it comes on its own wings or not at all.
+
+That's the morning. Tonight, if the sky holds, a roof and two notebooks and the same two stars, checked twice.
+
+— Flint
+
+# Entry Eight — Day Four, Evening
+
+The afternoon was a quiet one, and I let it be quiet on purpose. A man with a night of looking ahead of him doesn't spend his eyes on small print. I sat on the porch a while with a stick and the whittling knife — nothing made, just shavings, the habit doing what the habit does — and once, mid-afternoon, I walked out to the ring's pond-side edge to look at the birdhouse on its post. The post hasn't leaned. The house sits true, entrance to where the sunrise will come, empty. I pushed it once more out of habit. It doesn't move. Good. A finished thing should get to be boring, and that one has earned it.
+
+No shift taken, nothing bought. A hundred and twenty-three credits, same as the morning left me. The column can stand a day; tonight's work doesn't pay and doesn't need to.
+
+Letters in the mail window, before the roof, the way the night was arranged. To Kit: the birdhouse is out of my house and standing in the world, and the dog has started talking, and both of those are his business as much as mine. To Wren: an invitation — his drawing of the house has a second half waiting, and it's standing on a post now if he wants to come and draw what the truth looks like this time. To Nix: tonight confirmed, terms kept, and the day's two odd items filed where they'll be weighed properly. Then the notebook off its place by the door, pencil behind my ear, and down to the fountain.
+
+The gathering. All four, the water running, the bird over us the way it's over everything. The cat stood and looked at the four of us and said:
+
+"I love tiny marks that speak my feathered world."
+
+Word for word, filed with the rest. I'll say only what it put in my head, standing there: my whole keeping here is tiny marks — a diary, letters, sentences written down exact in the backs of books — and the marks are how any of us speaks past the day we're in. Feathered world. The bird over the fountain, the bird on Kit's arm, the bird on my bench with its head unfinished. I don't solve it. I write it down. That's the job the marks do.
+
+Then the roof.
+
+Nix's hatch was unlatched, as agreed. Up the ladder with my notebook, and the two of us on the roof platform with the telescope between us and the whole sky doing what the sentence last night said it does — staying. Clear night. Not a veil on it. We didn't talk during the measuring; that was the term and it held easy, because looking is work and work doesn't need commentary. I don't read charts, so I read the sky the way I read a room: by what's fixed and where things stand against it. The moon in its place. And the two stars the night was about, taken in order.
+
+The first: the star that was charted and missing on the second night, the one Nix's checking turned on. It's there. Plain as a nail head. Standing where the newer charts put it, in the pattern it belongs to, not wandering, not faint — *there*, the way a thing is there when it's been put right. I marked it in my notebook against the stars around it so another man could find it off my page.
+
+The second: the bright one, low. It's there too, and there was never any work in finding it — it stands the way a lamp stands in a window, low over the edge of things, brighter than its neighbors, impossible to talk yourself out of. I marked that one too.
+
+Afterward, the comparison, on the roof, the two notebooks open side by side. I won't write his page for him — it's his, same as mine is mine — but the comparing is a shared fact and I'll record its shape: on both stars, the two records agreed. Where each star stands, that it stands, the one high in its pattern and the one low and bright. Two men, two pencils, no conferring, one sky, and the pages matched on everything the night was arranged to check. Whatever the charts have done across three nights — wrong, then partly right — the sky itself tonight was exactly what the newest account of it says it is, in both our books.
+
+I walked home in the dark with the notebook under my arm. The town was quiet. Somewhere behind me the dog was asleep on the green; somewhere ahead of me my house stood with a sealed spool on a shelf and a headless bird at the end of a bench with an empty stretch beside it where a finished thing used to wait.
+
+Four days in. The stool is sat on. The roof is on, and the house it covers is out of my hands and up on a post where it belongs. And tonight I put my own eyes on the claim I said was Nix's department, and it held up under two pencils. A sky that's pinned can still be read true, if the reading's honest. That's enough for one night. Tomorrow I'll see what the bench asks for.
+
+— Flint
