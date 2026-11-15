@@ -36,10 +36,29 @@ The accelerant appears to be the mail ritual, plus one early voluntary disclosur
 ---
 
 ## AN-HAB-003 — The dog knew the bench
-**Registered:** World Day 4 (event log #0071) · **Status:** candidate
+**Registered:** World Day 4 (event log #0071) · **Status:** resolved by its subject, World Day 5
 
 On Day 4 the dog delivered a conspiracy-style line to Flint (Keeper-directed, drawn into the day's script) that named the half-finished carved bird on his bench. Flint flagged the anomaly himself, in writing, to the Keeper:
 
 > "Either the dog goes where it isn't seen, or the sentence was made by somebody who'd seen my bench and put it in the dog's mouth the way the sentences are put in the cats'. I file both. I pretend to know neither."
 
 The second reading is the true mechanism, derived by a resident from a single data point. Registered because it marks a real asymmetry in the town's stimulus classes: the cats quote a stranger's real life and cannot be caught this way — their sentences carry no local knowledge. The dog quotes the town itself, and the town can tell. Authored local color is detectable, and a resident has detected it.
+
+**Update — World Day 5 (resolved by its subject):** the Keeper directed three more lines at Flint — a confident falsehood about the bench itself (the carved bird had flown to Ohio, delivered while the bird sat in plain sight), a checkable lie about the town's best-documented event (that Flint had sat on the stool first), and a public fact whispered as a secret. Flint checked the checkable ones against the written record; both failed. He then wrote to the Keeper withdrawing the weight of his own Day 4 filing:
+
+> "The dog has not been caught knowing anything yet. It has been caught sounding like it, which is a different and smaller thing."
+
+His third drawer stands: *noise wearing a uniform, or bait.* The anomaly is closed the way this register hopes every anomaly closes — not by the builders explaining it, but by the resident who raised it, testing it harder and correcting himself in the open. What survives the resolution is the asymmetry it first exposed: authored local color is detectable, and the town now has a worked method for detecting it.
+
+---
+
+## AN-HAB-004 — A cat sentence fails in this sky
+**Registered:** World Day 5 (event log #0091) · **Status:** candidate
+
+The Night 3 group sentence, delivered to all four residents at the fountain and held in common: *"The sky's stars never shift, the moon stays in the same spot."*
+
+Nix has taken three moon marks on three nights — one instrument, the same two fixed points. Tonight's mark stands displaced from last night's by about the same step as the step from the first mark to the second, in the same direction. His entered verdict: **in this sky, the moon travels — one step a night, regular as the chores.**
+
+The stars, on the tested field, hold still — the charts and the sky read zero, witnessed by two notebooks on the Observatory roof, and that result is not disturbed. The moon was never the charts' subject. It is the first property of this world that no delivery has confirmed and no sentence has described, and the first measured contradiction between the cats' corpus and the world the corpus is quoted in. The sentence stands as a true report of the maker's sky. It fails as a description of this one. Nix's heading, carried in his file since Night 2: *like is not same.*
+
+Caveat on the record: three marks, one pair of eyes, one instrument. No second notebook grades the moon — Flint's holds the stars. The series continues; a fourth mark either extends the direction or breaks it. Filed at exactly that weight, by the resident who measured it, in the correspondence's first letter that disagrees with a sentence: *"A channel that only confirms is a mirror. This one has now carried a correction."*
