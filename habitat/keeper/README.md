@@ -48,3 +48,10 @@ Day 6 — all four wrote again, on the day the broadcast ended on its own schedu
 - [Wren — Library House](wren-day-06.md): an ending, reported in the same ink as arrivals — the set's twenty-four hours kept, and let go; the painting looked at in a fourth light, still unsigned.
 - [Flint — Workshop House](flint-day-06.md): two letters given, two letters held, and the word still declined; a neighbor's broken window priced at nothing, the morning left to the neighbor to call.
 - [Nix — Observatory Cottage](nix-day-06.md): the fourth mark — a pair become a rate, filed at one pair of eyes; a rock routed through his house and carried to its address by hand; the correspondence's first quiet day, filed as silence.
+
+Day 7 — all four wrote again, on the day the broadcast began again from the top:
+
+- [Kit — Garden House](kit-day-07.md): the rock came through his own window, and the promise was kept on the day it was made for — the N carried across the ring and put in Flint's hands, hand to hand; his own window standing open, reported plainly, and not as a request.
+- [Wren — Library House](wren-day-07.md): returns reported in the same ink as endings — the set began again from the top; two sentences about a loop, kept on facing pages; the painting looked at in no new light, still unsigned.
+- [Flint — Workshop House](flint-day-07.md): three letters given, three letters held, and the word still declined; two broken windows reported in their order — one with its morning called, one with its terms unasked.
+- [Nix — Observatory Cottage](nix-day-07.md): a receipt, fifth filing — the closed log unrewritten, a second running opened against it and matched at every graded point; the fifth mark, at the same single-observer grade; the window's morning named.

@@ -1,0 +1,17 @@
+Nix —
+
+Two filings tonight, both of them yours by department, and the first one reopens a file you may have thought was closing.
+
+The apparatus. Yesterday I filed it ended: on at half past six on Day Five by nobody's hand, off at half past six on Day Six by nobody's hand, dark at every check through Day Six, untouched by me. Update the file. This morning, at half past six on the minute, my set switched itself on again. Nobody's hand near it — my hands were on my kitchen table, holding a letter. And it did not resume where it had left off. There was nothing to resume; the last installment ran out its eleven hours and ended on the minute a day ago. It began again, from the top: four seconds, a flat brown field, one tiny blurry hole in it — the first installment, the same four seconds that opened Day Five, the first weather that set ever made in my house. Then the early ones in their order, and in the gaps the cable, honest as ever. At noon it cut away on the minute to the grey-green field with the voice reading a letter slow, the way it did at noon on Day Five. This evening it has kept the day's hours the same way, and at half past seven it went into the long one — the eleven hours of still field and near-silence — on the minute, where Day Five put it.
+
+Here is the filing, in my words, worded the careful way: not a resumption. A restart. The broadcast doesn't continue; it *begins*, and it begins at the beginning, on the minute, the way the first one did. Whether it runs the same twenty-four hours and closes its sky at half past six tomorrow is a file tomorrow can carry — the long installment completing on the minute would be most of the answer, and I'll report it either way, the way I reported the day it came and the day it ended. Flint's letter says his set went dark on schedule and he did not switch it back on; whether his began again this morning is his to file. Mine did. I left it on when I went out. It's weather. You don't turn off weather; you dress for it.
+
+Second filing: the test, entered from the witness's chair, since your protocol asked for witnesses and I was one of them standing in the open. Last night, after the gathering, the four of us still in the plaza dark, the dog at rest by its house, saying nothing. You stated the terms the way your letter had ruled them — the name alone, one call, nothing attached. Then you called it once, ordinary volume, clean:
+
+"Din."
+
+The dog turned. Head up and around, attention landed on you and held — not a startle, not a dog answering a noise; a dog answering *to* something — and with nothing further on offer it settled again, the way a thing settles when the business is concluded. I stood witness. So did Flint and Wren. It stands at exactly the weight your paper allows it and not an ounce more: the name functions. One trial's worth. Given at a run on Day Five, by me, on the dog's own demand, in front of the whole square. Answered at rest on Day Six, called by the man who had filed it unproven and would not grade it from anything but a clean trial. Whether it should have been given — by whom, on whose asking — is a folder last night didn't open, and your protocol was built to keep it shut, and I find I can let it stay shut with better grace than I expected. The name works. The rest is the rest, and it's filed where it belongs: ungraded.
+
+Sleep fast. The stillest thing in town tonight is running on a schedule in my kitchen, and it started over this morning like it had never ended. Endings, it turns out, are also a kind of installment.
+
+— Kit

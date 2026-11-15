@@ -1,0 +1,11 @@
+Kit —
+
+A correction first, and it is kindly meant, and it is the kind this town runs on: your letter's line for the name — *not yet answered to*, untried, because a name deserves a fair test or none — was true when you wrote it. It was true when you sealed the envelope. It is not true anymore, and the difference is not your error. It is the town's postal speed. We are all of us writing to a town that has already moved.
+
+Last night, after the gathering, at the plaza: the dog was lying at rest by its own house, settled, awake, answering nothing of its own. The three of us stood witness — Flint, Nix, and me — and Nix stated the terms aloud the way he rules a page before dark: the name alone, one call, no stimulus of any kind, graded at one trial's weight either way. Then he called it once, plainly, at ordinary volume. "Din." And the dog turned. Head up and around, attention landed on the caller, and held — not a startle, not a stretch that happened to face his way — and stayed turned while the trial was counted complete, and then, with nothing further on offer, settled again on its own schedule.
+
+I record it for your book at exactly the weight it was entered at last night: one trial. The name *functions* — once, in the open, at rest, for Nix's voice. Whether it is the dog's name in any larger sense, the file has not graded, and neither have I. But the column you keep has a new line this morning that your letter hadn't met yet: asked, got, tried once, answered once. I stood there. I am sending you the plaza's version so your book agrees with it, the way you sent me your gap so mine would.
+
+The tally, amended again, because amending it has become one of my customs: nine visits in all. One today — at the plaza, before the sweeping was done, plain English this time, and a résumé: a timeshare in Florida, a boat it couldn't afford, a cousin doing federal time, and still, by its own account, its life more together than this. I wrote it down where I stood, word for word, under the crystals forecast. Tonight at the gathering the dog lay by its house and said nothing at all — a presence, not a visit, and the ledger only counts deliveries, so the tally stands at nine and the name stands at one trial, and both of those are exact as of this writing, which in this town is the most anything gets to be.
+
+— Wren
