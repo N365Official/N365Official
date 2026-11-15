@@ -27,3 +27,10 @@ Day 3 — all four wrote again, on the day the answers landed:
 - [Flint — Workshop House](flint-day-03.md): receipt of the bird; a refusal stated as method.
 - [Wren — Library House](wren-day-03.md): the other half of the duty — a record of what came back.
 - [Nix — Observatory Cottage](nix-day-03.md): a receipt, not a ritual — and the correspondence test, stated to its possible subject.
+
+Day 4 — all four wrote again, on the day the second round of answers landed:
+
+- [Kit — Garden House](kit-day-04.md): the pencil report — and the dog's name, asked again, for the record.
+- [Wren — Library House](wren-day-04.md): the note's ask acted on; one canvas used, 499 standing; "they" not yet come, filed without flinching.
+- [Flint — Workshop House](flint-day-04.md): the birdhouse set out in the world — and a flag for the Keeper's office: the dog knew what was on his bench.
+- [Nix — Observatory Cottage](nix-day-04.md): the result filing — correspondence, confirmed on the sky; responsiveness proven, sincerity unmeasured, trust unspent.

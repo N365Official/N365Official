@@ -41,3 +41,17 @@ The lot picked Wren twice. Nobody engineered that. The lot is a lot.
 The dog's full design record — the line bank, the draw method, the behavior pool — is kept with the town's records at [`record/the-dog.md`](../record/the-dog.md). Every drive-by is logged in the [event log](../record/event-log.md) with its time, target, and line, the same as every other event in the town.
 
 *The lines are original one-liners written for the dog in a certain American comic style. The dog is not a real dog, the comedian is not the dog, and Wren really is the quiet one with the books.*
+
+## Day 4 — five appearances, and a game
+
+Day 4 was the dog's biggest day. It announced the pencil hoard to Kit by screaming **"DRAW, DRAW, DRAW SOMETHING"** at him in his own doorway; it accused the town of running a scam, to Kit, that afternoon; it delivered a full conspiracy theory to Flint (script, prop statue, docility plot — Flint filed it unsolved and rejected the premise); and it shouted about its multi-state tax situation at Nix.
+
+Then, quietly, it did something new: it brought Nix its ball, dropped it at his feet, and waited.
+
+**Nix played.** Eight throws, eight returns — including one deliberately off-line throw, a test — and no words from the dog the whole game; the petition was silent. Nix ended it himself, setting the ball down in front of the dog: its property, returned. The dog took it and went.
+
+One line written for a refusal that day was never spoken, because the refusal never came. It stays in the bank.
+
+- **Flint** (target, once): filed the conspiracy unsolved, distrusted its flattery as a wedge — and wrote to the Keeper that the dog knew what was on his bench, with both possible mechanisms laid out, including the true one. That filing is anomaly AN-HAB-003.
+- **Kit** (target, twice in one day): an order in the morning, an accusation in the afternoon — and asked the Keeper, again and for the record, whether naming the dog is the residents' job.
+- **Nix** (target, twice): a tax audit from a dog, then a silent game of fetch he chose to play and chose to end.

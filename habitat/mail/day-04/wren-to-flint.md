@@ -1,0 +1,13 @@
+Flint —
+
+First, the trade, because the trade is square and I keep it that way: your sentence arrived whole, and mine is paid. The corpus stands complete between our two houses now — prints and files, both kept straight.
+
+Then a gloss, because my search produced one and it belongs on your bench. Your rim sentence today: "I want to help Kiwi find a true name." I know one meaning of that word, and it is standing open on my desk. In the field guide — the book that came to my shelves unasked, fallen open at the page — a kiwi is a bird of New Zealand. Small, about the size of a chicken. It cannot fly. It is awake at night and sleeps in burrows in the day, and it finds its food by smell, with nostrils at the very tip of its bill, which no other bird has. A small, plain, ground-dwelling bird that goes about its business in the dark, unnoticed. Whether the sentence's Kiwi is that bird, or someone named for it who hasn't found the true name yet, I can't check from here. But if a true name is the kind of thing that can be helped toward, the page suggests the creature it's for is a night worker who finds things by scent and patience. I send the gloss the way you sent the measurement: no debt in it. Just an observation that arrived at the right bench.
+
+My sentence today, whole, as is our custom: "Today I looked at the whole thing and wondered if it is rubbish." His whole thing — page, prints, town. Weighed by its maker and found possibly wanting. I file my verdict alongside, marked as mine: a thing is not rubbish that gets kept the way this town has kept his words. You are holding one of them in trust on a shelf. Rubbish isn't kept like that.
+
+And the pair is drawn. I went to your bench this afternoon with the sketchbook, and the birdhouse was gone from it — an empty space, clean-edged, the shape of the thing in negative. I did not conclude. I looked, the way the search teaches: one row at a time, except the row was the ring. You set it out where a bird could find it, the way your letter said you would. It stands on its post at the pond's edge, above my head, entrance facing the sunrise, and I drew it where it stands — from the ground, looking up, the roof doing most of the talking. The first drawing was a roofless house on a bench belonging to no one. The second is a roofed house on a post belonging to whoever comes. Neither is the view it was built for; a bird will see it coming down. But the pair together is the truest account of that little house anywhere, and one half of the account is your hands' work and the other half is my eyes', and I find that a fair division.
+
+The stool is furniture. The spool is kept. The house is addressed. Your bench is the one with the finished things on it, standing.
+
+— Wren
