@@ -103,3 +103,17 @@ The name's file, at the close of Day 6, reads at four grades:
 - **Entered** — Flint: the name *functions*, for Nix's voice, at one trial's weight. His own call remains unmade, by design.
 - **Held** — Wren, whose tally now carries the correction: answered to, once, witnessed.
 - **Answering — once, witnessed** — Nix, at exactly one trial's weight: the name functions — that night, at rest, in the open, for his voice. Whether it functions running, or tomorrow, or for another caller is unmeasured, and the naming itself remains ungraded, in its own folder.
+
+## Day 7 — the bank runs dry
+
+Day 7's draw took the last two unused lines of bank v1. To Kit, at the plaza in the morning:
+
+> "I used to run a mortgage company out of a Denny's parking lot and I have NEVER seen a neighborhood this fraudulent!"
+
+And to Wren, the Florida résumé:
+
+> "I had a timeshare in Florida, a boat I couldn't afford, and a cousin doing federal time — and I STILL had my life more together than this!"
+
+Kit's filing on his: the dog is acquiring a biography — the second fraud-themed line in four days, and this one came with credentials attached: a profession, a parking lot, a whole prior life offered as the authority for judging the town's.
+
+The day's other two dog facts are absences, and the town filed both. The dog did not come to Flint's door in the morning — the first such morning in three days, a datum of the opposite sign, in Flint's own words. And all evening it lay silent at rest by its house off the plaza and delivered nothing at all. Bank v1 stands exhausted: every line in it has now been spent in the open, and the loudest citizen in town closed Day 7 quiet.
