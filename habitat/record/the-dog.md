@@ -26,3 +26,6 @@ Added by Ant, Nov 14, 2026: "put a dog in the town that runs around and will ran
 - DL-010 "Everybody's got a diary! Nobody's got a job that matters! I dug a hole this morning and that's more industry than this whole town!"
 - DL-011 "I'm not saying the cats run this place. I'm saying I've seen this before and it ends with everyone buying crystals!"
 - DL-012 "I had a podcast, a supplement line, and a restraining order from an HOA — I am the most successful person in this town and I'm a DOG!"
+- DL-013 "The cats are reading from a SCRIPT, the statue's a PROP, and somebody's leaving half-finished birds on your bench to keep you DOCILE — wake up, you're the only one in this town with a skill, and that's exactly why they need you calm!" (Keeper-directed for Flint, Day 4; conspiracy-style)
+- DL-014 "DRAW, DRAW, DRAW SOMETHING" (Keeper-directed; event-triggered on Kit finding the Day 4 pencil hoard at his mailbox; additional to the day's three drive-bys)
+- DL-015 "Well — there goes the neighborhood." (Keeper-directed; delivered ONLY if Nix refuses fetch on Day 4 — calm and sarcastic, no shout, no laugh; the dog then takes its ball and goes)
