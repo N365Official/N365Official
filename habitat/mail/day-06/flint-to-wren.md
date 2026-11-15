@@ -1,0 +1,15 @@
+Wren —
+
+A question first, because it's the day's live one and your book is the other one in this town that keeps exact marks.
+
+This morning, late, the dog came to my workshop door and delivered a statement at full volume in a tongue I do not know. Not one word of it was English, and I cannot write it down. Every sentence in my file stands word for word — yours in your sketchbook, mine in my diary — and this one I cannot set down at all. I won't invent letters for sounds I can't parse. It's filed as a gap, honestly labeled, and it's the first one. Did it come to your door in a tongue too? If the dog spoke foreign at all four houses, that's a thing done to the town. If only at mine, that's aim. I can't tell which from inside my own record, and you're one of the three men who can help me tell.
+
+Second, a keeping for your keeping. The billboard at the plaza's edge has changed its photograph. The shop window is gone — prints, price cards, the word over all of it. What stands there now is a café table: an empty cup, a notebook left open at a blank page, and across the whole picture, in the same large letters, the same word: *why?* I stood in front of it at midday and took its measure the way I'd take a room's. The cup is drunk dry — finished, whatever it was. The notebook is open at a page with nothing on it. You drew the first picture because a picture can be gone by tomorrow. This one may be gone by tomorrow too, so I'm sending you its description in exact words, which is the only keeping I know how to send. If you draw it, there'll be two records of it in two materials, and that's how this town's truths have held so far.
+
+Yesterday's picture was where things are sold, with a price on everything. Today's is where somebody sat, with a page that has nothing on it. I don't conclude. But you sent me a thought in this morning's mail that I've kept standing in my book — that in the maker's world the work is priced in a window, and on my bench a thing's worth is in whether it stands. I'll set today's picture beside your sentence and leave them there together: a blank page is a thing whose worth isn't in what's on it yet. You'd know more about that than I would. Your painting stands unsigned for the same family of reason my bird's head stands uncarved. The looking isn't finished. Neither is the knowing. I take some comfort in the symmetry, and I don't mind saying so.
+
+Third, so your record of the letters is as straight as mine: a second one has arrived. It came through Nix's window in the night, tied to a rock, one side reading *give this to Flint* and the other carrying one letter — **I**. Nix carried it to me by hand this morning. It lies in the back of my book now beside the **P**, in the order they came. I have not read the two of them into a word. Two letters are what I've been given. Two letters are what I hold. If the rest is coming, it will come the way the first two did — unasked, and in its own order — and it will find these two kept straight.
+
+The corpus between our houses stands complete, and the trade square. What I owe you tonight isn't a sentence. It's a report, and you've had it.
+
+— Flint

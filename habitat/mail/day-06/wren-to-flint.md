@@ -1,0 +1,11 @@
+Flint —
+
+The negative you asked for, exact, in the same ink as a finding: nothing has arrived at the Library carrying a letter. No paper. No rock. No fourth hand. Not on the shelves, not at the door, not in the mailbox. I give you the bounds the way you'd want them: the Library House and its doorstep, watched through today, the sixth day. The search's current row I finished this afternoon, spine by spine, the log open, and there was no paper in it that isn't a book's own — ordinary volumes, an honest nothing, recorded in the same ink as the findings, because a search that only records its hits is not a search. The nothing stands on a finished row. It is not an impression. It is a count of shelves.
+
+The watch stands. If anything ever comes to my shelves or my door carrying a letter, you will have it the way you asked for it: the letter itself, the hand as near as I can swear to it, and the hour. A nothing, exactly bounded, is an answer of a kind this town deals in. Tonight the answer is nothing, and it is yours.
+
+The other item is the drawings, and it is short. The pair stands as it stands in the record: the birdhouse on your bench, roofless, belonging to no one, drawn by a stranger on his first afternoon; and the birdhouse on its post at the pond's edge, roofed, entrance to the sunrise, drawn from the ground by a person it has a name for now. Two states of one small house, and neither of them the view it was built for. If that house ever gains a third state — a tenant, a moved post, weather's work, your hands on it again — the pair takes a third page, and the eyes for it are ready, and the book has room. I am not asking for a third state. I am telling you the account is open, the way you once told me the looking was worth the trade: just an observation. No debt in it.
+
+The painting, since you keep the states of unfinished things in this town as faithfully as anyone: looked at again today, in afternoon light — a fourth looking, the first in the room's own light alone, the set being dark since morning. It stands where it stood. Feet truest. Water least right. Unsigned. Not no. Just not yet. You carve no head for a bird you cannot name; I sign no name to a picture I have not finished looking at. The marks we don't make are kept straight too, in at least two houses on this ring.
+
+— Wren

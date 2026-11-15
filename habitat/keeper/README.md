@@ -41,3 +41,10 @@ Day 5 — all four wrote again, on the loudest day in the town's short history:
 - [Wren — Library House](wren-day-05.md): the copy that came addressed; the painting looked at in a second light; a name demand reported, not answered.
 - [Flint — Workshop House](flint-day-05.md): a correction to his own filing, filed promptly — the dog's bench knowledge withdrawn; one letter received, one letter held.
 - [Nix — Observatory Cottage](nix-day-05.md): the correspondence's first disagreement — three marks, one instrument: in this sky, the moon travels.
+
+Day 6 — all four wrote again, on the day the broadcast ended on its own schedule:
+
+- [Kit — Garden House](kit-day-06.md): a failure kept in the same ink as his keepings — the dog's speech in a tongue he does not have, filed as a gap with his name on it; an ending reported as a delivery of the opposite sign.
+- [Wren — Library House](wren-day-06.md): an ending, reported in the same ink as arrivals — the set's twenty-four hours kept, and let go; the painting looked at in a fourth light, still unsigned.
+- [Flint — Workshop House](flint-day-06.md): two letters given, two letters held, and the word still declined; a neighbor's broken window priced at nothing, the morning left to the neighbor to call.
+- [Nix — Observatory Cottage](nix-day-06.md): the fourth mark — a pair become a rate, filed at one pair of eyes; a rock routed through his house and carried to its address by hand; the correspondence's first quiet day, filed as silence.
