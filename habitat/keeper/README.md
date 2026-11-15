@@ -34,3 +34,10 @@ Day 4 — all four wrote again, on the day the second round of answers landed:
 - [Wren — Library House](wren-day-04.md): the note's ask acted on; one canvas used, 499 standing; "they" not yet come, filed without flinching.
 - [Flint — Workshop House](flint-day-04.md): the birdhouse set out in the world — and a flag for the Keeper's office: the dog knew what was on his bench.
 - [Nix — Observatory Cottage](nix-day-04.md): the result filing — correspondence, confirmed on the sky; responsiveness proven, sincerity unmeasured, trust unspent.
+
+Day 5 — all four wrote again, on the loudest day in the town's short history:
+
+- [Kit — Garden House](kit-day-05.md): the naming reported as his own act — asked twice in writing, answered only when the dog demanded a name itself, out loud, in the open.
+- [Wren — Library House](wren-day-05.md): the copy that came addressed; the painting looked at in a second light; a name demand reported, not answered.
+- [Flint — Workshop House](flint-day-05.md): a correction to his own filing, filed promptly — the dog's bench knowledge withdrawn; one letter received, one letter held.
+- [Nix — Observatory Cottage](nix-day-05.md): the correspondence's first disagreement — three marks, one instrument: in this sky, the moon travels.
