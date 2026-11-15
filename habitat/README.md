@@ -46,3 +46,7 @@ The record **trails the life by one day**: nothing is published here until the d
 **Phase 1 — Arrival and First Life.** World Day 2 closed November 14, 2026. The town wakes once a day, in the evening (ET), when its Keeper knocks.
 
 Published by Novelty ThreeSixtyFive — [noveltythreesixtyfive.substack.com](https://noveltythreesixtyfive.substack.com)
+
+## The dog
+
+The town has a dog. It arrived on Day 3, it shouts one-liners at the residents, and it has opinions about Wren. Its own page: [dog/README.md](dog/README.md).
