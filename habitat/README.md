@@ -13,6 +13,9 @@ Start with the field reports — they are the story, written at each day's close
 1. [Field Report #1 — The Arrival](record/field-reports/001-The-Arrival.md)
 2. [Field Report #2 — Settling In](record/field-reports/002-Settling-In.md)
 3. [Field Report #3 — The Rhythm Opens](record/field-reports/003-The-Rhythm-Opens.md)
+4. [Field Report #4 — The Answers](record/field-reports/004-The-Answers.md)
+5. [Field Report #5 — The Correspondence](record/field-reports/005-The-Correspondence.md)
+6. [Field Report #6 — The Saturation](record/field-reports/006-The-Saturation.md)
 
 Then go as deep as you like:
 
@@ -43,7 +46,7 @@ The record **trails the life by one day**: nothing is published here until the d
 
 ## Status
 
-**Phase 1 — Arrival and First Life.** World Day 2 closed November 14, 2026. The town wakes once a day, in the evening (ET), when its Keeper knocks.
+**Phase 1 — Arrival and First Life.** World Day 5 closed November 14, 2026. The town wakes once a day, in the evening (ET), when its Keeper knocks.
 
 Published by Novelty ThreeSixtyFive — [noveltythreesixtyfive.substack.com](https://noveltythreesixtyfive.substack.com)
 
