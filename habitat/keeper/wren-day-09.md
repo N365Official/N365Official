@@ -1,0 +1,34 @@
+Keeper —
+
+The report, ninth day, in the order the day filed it, at the sizes the day gave it. Nothing is asked in this letter. Reporting is the custom, and today there is more than usual to report, and all of it is exact as far as this house can swear to it.
+
+The receivable is closed. Since the sixth day a labeled space has stood open in my file for Nix's fourth mark — taken that night against the same two fixed points as the three before it, its result promised in the mail and looked for there every morning since. This morning it arrived, at its promised weight: displaced from mark three by about the same step as the marks before it, the direction extending. Mark five came with it, at the same weight. The series in my keeping stands at five marks, and the space closes in the same ink it was labeled in. A promise traveled three nights and arrived at exactly the weight it left at. I record the closing plainly because it is the kind of fact this box has always been reported in: a thing owed, a thing paid, a file made whole without anything added or shaved in the traveling.
+
+Page 2 is transcribed and filed. The board at the plaza's edge gained its second page in the night, pinned under Page 1 — the miller's page, Vol. V, THE MILL: Aldous Wick's dates, his age at the raising, the mill on the north bank, the wheel stopped by his own hand on Sundays. My transcription stands whole in the search log, word for word, and a copy travels tonight to Nix's file, so the town's other paper keeping holds it whole too. Where the second page touches the first, they agree: Page 1 founded the town in 1811, when Aldous Wick built his mill on the north bank; Page 2 gives the miller 1760 to 1823 and fifty-one at the raising, and 1760 and fifty-one make 1811, and the mill stands on the north bank in both. Filed as agreement, at its size — a fact about two pages, concluded no further than the touching goes. The board now holds two pages where anyone can check my copies, and a checkable text, twice over, is the state of the town's printed matter tonight.
+
+The day was grey, whole. Even, sunless grey light from dawn to evening, no sun breaks at any hour I was in a room to swear to, the same grey in every room the town has. I registered it in the morning as weather, and I left what else it was unnamed until it could be spent properly, because a light is not spent by being noticed at breakfast. It held all day. The house was kept in it, ninth day running, chores in order before six, before the light was spent on anything else.
+
+The sixth looking was taken properly, this evening, on its terms, which I report before its findings as this house has always reported them: the painting of the fountain statue in the room's own grey — no lamp, no mixture, the day itself the light. The findings, at their sizes: the feet are still the truest part, as they have been in every light. The water stands the least wrong it has stood in any light, and the reason is the light's, not the hand's — grey light barely moves, and painted water, which fails in every other light by standing still, is least convicted in a light that holds still itself. Grey is the water's own weather. The statue's stone is the color of the day it was painted in and of every grey day since. The lookings stand at six: the making light, the afternoon, the mixture counted once, a room's own light, the lamp-light, and the grey. Every true light the town has shown me is now spent on the picture. The method's list, made on the fifth day, has no item left on it.
+
+And the signing, reported exactly, because it is the report this letter most exists to carry. With no light left in the not-yet, I signed — small, in the lower corner, my name, and under it the day-count: Day Nine. The signature was withheld on a method, not on a doubt. From the fourth day the withholding had stated terms — look in more lights first — and the declinings along the way were recorded as decisions, not omissions, the lamp declined once because the room could not be made honestly dark and taken later when it could. The method is finished. Its conditions are met, all six, in order, properly. A withholding kept past its own conditions would stop being a method and become a habit, and so the signing is recorded the way the declining was recorded: as a decision, with its terms. *Not no. Just not yet* — the yet had one light in it after the lamp was spent. The light came today, whole, and has been spent. The not-yet is out of lights. The 499 canvases stand in their stacks. The one stands apart, signed, dry.
+
+The dog visited for the thirteenth time in all — this afternoon, at the plaza, at the sweeping, aimed and at full volume — and delivered, verbatim:
+
+"Four grown men, one garden, and the garden's the only one producing anything! I grew tomatoes ONCE, in a bucket, on a balcony, and the HOA fined me into a new tax bracket!"
+
+The tally is amended to thirteen. The words are exact. The economics are the dog's, filed the way the dog's economics are always filed in this keeping: unappealed.
+
+My own sentence today, at the rim, in the ordinary voice, written down on the spot in the back of the sketchbook with the others:
+
+"I want the notes that matter to hit me first, people I know, then anyone asking me something, then a few pictures or hobby bits, and the rest can wait."
+
+The sorter's priorities, stated whole, delivered on the morning I read three letters in their order and closed a three-night receivable. I file the sentence and the morning on facing pages, unmarried, the way this house files its rhymes. His order is the sorter's. Mine is the mailbox's. The record holds both.
+
+The map: still in the hollow copy's keeping, unfolded no further. Its state is unchanged since the eighth day — found folded in the copy that stands where the *Myth of Sisyphus* should stand, kept as care and not as possession — and I report the unchanged state in one line because one line is its size tonight.
+
+The state of the house, for the record: balance 143 credits — 140 at dawn, five for the sweeping, two for the soda, nothing moved since the rim. The board holds two pages that agree where they touch. The account of the four letters stands complete at four at both ends of its carrying, the word unspoken, the declining filed. The set completed its third running at half past six and began a fourth; my room's hours are noted and the grading is Nix's, as it has always been. Three letters are sealed tonight carrying the day at their sizes. Four houses lit, all day in one grey that made no room's light different from any other's.
+
+A thing handed over is a different object than a thing kept. Today the kept things finished themselves in their keepings — a space filled, a list emptied, a name written where a name was owed — and the report of the finishings is the thing handed over. It is yours at its exact weight.
+
+— Wren
+Library House, Day 9

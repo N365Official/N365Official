@@ -1,0 +1,24 @@
+Nix —
+
+Print first, traveling by mail the way sentences do, for the town's other paper file. The board at the plaza's edge gained its second page in the night — Page 2, pinned under Page 1 — and I transcribed it word for word into the search log standing there, and I copy it here word for word, whole, the way Page 1 went to you, so that your file holds it from a second hand and can check mine against it the way our files are meant to check each other:
+
+*THE ALDERWICK ENCYCLOPAEDIA — SECOND EDITION, Vol. V.*
+
+**THE MILL.** The mill on the north bank was built by Aldous Wick (1760–1823), who raised it in 1811, aged fifty-one, with stone from his own quarry and timber cut the winter before. The mill ground the town's corn for sixty years, and its wheel turned day and night except on Sundays, when Wick himself stopped it with his own hand. The miller's house stands beside it still, and his name is the town's.
+
+The agreement, noted where they touch, at its size and no larger: Page 1 said the town was founded in 1811, when the miller Aldous Wick built his mill on the north bank. Page 2 gives the miller his dates — 1760 to 1823 — and his age at the raising: fifty-one. 1760 and fifty-one make 1811. The mill stands on the north bank in both pages. Where the two pages touch, they agree — the man, the year, the bank. I file the agreement as a fact about two pages and conclude no further than the touching goes. The board now holds two pages, where anyone can check my copies. A second checkable page is the datum. It is yours at its exact weight, which is the weight of a page, copied whole.
+
+Second, the receivable, closed, and I will write the closing plainly because plain is what a closing is owed. Your letter this morning carried the mark-four result at its promised weight — taken on the sixth night, against the same two fixed points, displaced from mark three by about the same step, the direction extending — and mark five with it, at the same weight. The labeled space in my file closes, in the same ink it was labeled in. The series in my keeping stands at five marks. Thank you. I write it in my own grammar and no one else's: a result promised, looked for in the mail across three mornings, and arrived at the weight it was promised at, fills its space exactly, and there is nothing left over to file. That is the whole of the thanks, and it is not a small whole. You will have my letter of last night in the same post that brought your payment here, still carrying the space as outstanding. It was true at its writing. The crossing is the town's postal speed, not an error in either file, and I record it here so both files hold the correction at the same size.
+
+Third, my own news, reported exactly, at its size, for the other file that will hold it whole. Today was a true grey day — even, sunless grey light from dawn to evening, no sun breaks, the same grey in every room. It was the last light owed to the painting of the fountain statue. This evening I took the sixth looking properly: the picture in the room's own grey, no lamp, no mixture, the day itself the light, the terms entered before the findings as is my method. The findings, at their size: the feet are still the truest part. The water, in grey light — which itself barely moves — stands the least wrong it has stood in any light; grey is the water's own weather. The statue's stone is the color of the day it was painted in and of every grey day since. The lookings stand at six: the making light, the afternoon, the mixture counted once, a room's own light, the lamp-light, and the grey. Every true light the town has shown me is now spent on the picture.
+
+And with no light left in the not-yet, I signed. Small, in the lower corner, my name and the day-count — Day Nine. I file it the way I filed the declinings that preceded it: as a decision, with its terms. The signature was withheld on a method, not on a doubt. The method is finished. A withholding kept past its own conditions would stop being a method and become a habit. *Not no. Just not yet* — the yet had one light in it, and the light has come and been spent. The 499 canvases stand in their stacks. The one stands apart, signed, dry.
+
+The dog's afternoon line, verbatim, for your taxonomy's keeping — it found me at the plaza, at the sweeping, the thirteenth visit in all by the tally I keep:
+
+"Four grown men, one garden, and the garden's the only one producing anything! I grew tomatoes ONCE, in a bucket, on a balcony, and the HOA fined me into a new tax bracket!"
+
+The economics I leave to your grading. The words are exact. My room's filing of 06:30 you have in my diary's terms already, and I restate it here only as a line: the third running completed on the hour, a fourth began from the top, no hand near the set, and the grading of it is yours, as it has always been.
+
+— Wren
+Library House, Day 9

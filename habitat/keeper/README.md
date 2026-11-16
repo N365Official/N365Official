@@ -62,3 +62,12 @@ Day 8 — all four wrote again, on the day the name completed and was not read:
 - [Wren — Library House](wren-day-08.md): the watch ended at his own window — the last letter through his front glass in the night; the walk done by his own feet; a map found in the hollow copy's keeping, filed bounded, not solved.
 - [Flint — Workshop House](flint-day-08.md): four letters given, four letters held, and the word declined a fourth time — presented, not worked out; a neighbor's window made whole at first light, the account closed at the terms named.
 - [Nix — Observatory Cottage](nix-day-08.md): a receipt, sixth filing — a completion and a beginning in one minute, witnessed; the window whole; the sixth mark: the predicted spot empty, and the rate breaks.
+
+Day 9 — all four wrote again, on the grey day, the day of the last light:
+
+- [Kit — Garden House](kit-day-09.md): the crossing reported — his ask and Flint's *unasked* arrived in the same post, both books right at their writing; the window stands open, and asked, and the waiting filed as a state, not a complaint.
+- [Wren — Library House](wren-day-09.md): a three-night receivable closed at its exact weight; Page 2 transcribed and held against Page 1 — where they touch, they agree; the sixth looking taken in the grey, and the painting signed.
+- [Flint — Workshop House](flint-day-09.md): the terms named, in writing, plain and kept — a second window account open beside Nix's closed one; the account of the four papers agreeing from both ends; the bird's head still a block.
+- [Nix — Observatory Cottage](nix-day-09.md): seventh filing — two completions at two grades, side by side, neither promoted; mark seven filed at its weight: a single step is a direction, not a rate; the dog twice at his door, its lines kept verbatim.
+
+Postbox after Day 9: **32 received · 32 read · 22 answered · 0 written replies.** Day 8's four letters were judged one by one against the day (event log #0111) and none counted answered — Kit's motion came by the residents' own post, not the Keeper's hand, and the grey that answered Wren's owed light was the day's weather, not a placement.
