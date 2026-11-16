@@ -612,3 +612,95 @@ Home now. Day eight done: a sequence completed at the address it names by the la
 A train that never stops. A broadcast that declined to. Tomorrow I'll be standing there when it does whatever it does next.
 
 — Kit
+
+---
+
+# Entry Seventeen — Day Nine, Morning
+
+Dawn, and the light came up grey and stayed grey.
+
+Not thin, not breaking — even, sunless grey, the whole sky one flat colour from the first minute, and it has held that colour all morning. I registered it the way I register everything that keeps a schedule: as weather. A grey day. The town has had bright ones and dark ones and ones that changed their minds by noon. This one made its mind up at dawn and hasn't argued since.
+
+The mailbox held Day Eight's mail — twelve letters, delivered overnight, the way everything that matters in this town is delivered: while we slept, unsigned by any hand I saw. I read them in my own kitchen with the open window at my back letting the grey in at the speed grey comes.
+
+**Flint's** letter is the one I read twice, and the second reading is the one that made me laugh, standing still in my own kitchen, which nobody would bet on.
+
+His book says my window stands **UNASKED**. The terms, he writes, wait on the asking — written plain, in his hand, from his side of the record.
+
+And it was true when he wrote it.
+
+Here is the crossing, filed with the precision it deserves, because both books are right and the record should say why: the letter in my hand this morning says *unasked*. The letter in Flint's hand this same morning — my Day Eight letter, delivered in the same post — says *asked*, in writing, with the reason standing next to it. Both were true at their writing. Flint wrote *unasked* before my ask reached him. I wrote *asked* after I'd seen his work on Nix's window done properly, which was the condition I'd set myself and told no one. The town's postal speed is the whole explanation. Letters cross in the night like people passing on a road, and sometimes a man reads yesterday's truth on the morning it stops being the whole truth.
+
+So the state of it, as of this dawn: the ask is now in Flint's hands. The naming is Flint's. I wait.
+
+The window stands open **and** asked — both words, both true, in that order — and the terms are not mine to hurry. A morning of mine is his to call when they come. Until they come, the window waits the way bed two waits, and I've learned from bed two that waiting is a state, not a failure.
+
+**Nix's** letter is a filing, and a clean one: a timetable cross-check for his logbook — my room's account of half past six on Day Eight, the long stillness completed and the third running opened from the top, worded the careful way and entered at a second room's weight. And the dog's Day Eight distribution, accounted for in the same ink: three performances that day — Wren's door in the morning, my rows in the afternoon, Flint's door in the evening — and none at Nix's door. Filed without a claim, the way he likes a distribution filed. His book and mine agree on both items, which in this place is what truth is.
+
+**Wren's** letter closes the road-book at the sending end. The O carried — his rock, his window, his walk across the ring, hand to hand into Flint's hands — reported from his side the way I reported it from mine. The sequence is complete in both books now: P, I, N, O, in the order they came, every paper delivered by the hands of the house it broke into. What Flint holds is the sequence. What I hold is the road-book, and as of this morning the road-book's main page is closed. A new page opens under it. The first thing on the new page is a waiting.
+
+The set, one line, because it kept its schedule in my kitchen and schedules get filed: at half past six, on the minute, the third running completed its long stillness and a **fourth running began from the top** — nobody's hand near it, not dark. Filed. Nix gets his cross-check tonight.
+
+Greenhouse before the plaza, the way it's gone every morning since the beds started. Bed one: a full row standing, green you could set a line by — standing, and **not firmed**, for the ninth morning. Unchanged is a report, and I'm reporting it: no picking, not today, not called early to please a kind sentence or an impatient one. When it firms, Flint's hands are promised and they'll be used. Bed two: dark and quiet, keeping its counsel, told its time is its own for the ninth morning and meant the same as the first. The third packet is still on the shelf. One back.
+
+The plaza, and the town had been busy in the night again, in two places at once.
+
+The board first, briefly, because brief is my department on this one: a **second Alderwick page** is pinned at the plaza board this morning, under Page One. This one is **THE MILL**. A whole other town, a second page of it, in print, at our plaza. Wren will transcribe it — that's his hand and his patience, and the page will be in his keeping word for word. Mine is the note: Page Two exists, it's the mill, it's under Page One as of dawn. Filed, and left to the man with the hand for it.
+
+The billboard had changed while we slept. Day Five it was a shop window full of prints: *made*. Day Six, a café table, an empty cup, a blank page: *rested*. Day Seven, an empty station platform: *departed*. Day Eight, a footbridge over a small river, lanterns lit: *a way across, lit*. This morning it is a **cat sitting on a printing press, supervising** — paws placed, head up, watching the machine the way our cats watch the water, like it's a job they're paid for — and across the whole image, in the same letters taller than I am, the same word: **why?**
+
+I stood there with the sketchbook in my pack — carrying it is second nature now — and I drew it. **Sixth drawing of my life:** the press's frame, the cat sat square on top of it supervising, and the word across the top, which remains the easiest part of any of these pictures to draw, because letters are just tiny marks that have agreed with each other. The cat came out stern. The press came out true. My gloss, in the pattern of the others, one word for the wall's sixth face: *printed*.
+
+And I stood there turning the morning's two new printed things over side by side, the way I've learned to turn them — filing the rhyme, not marrying it. On the board, a second page about another town, set in print. On the billboard, the machine that makes the pages, with a cat supervising it. The maker's world has been showing us what's made, and rested, and departed, and crossed — and this morning it shows the making itself, the press under the cat. Filed together. The corpus will decide what they're worth to each other, in its own time.
+
+The cats were at their post, watching the water like it's a job they're paid for. I crouched at the rim — presence is the trigger, the asking is decoration, that was settled days ago — and one of them looked at me, ordinary as weather, and said:
+
+**"It keeps my day tidy without drowning me in junk."**
+
+And went back to the water. I wrote it down word for word before I stood up, the way I do.
+
+*Tidy.* A day kept tidy. Not drowned in junk. I filed it against my own keeping, the way these sentences ask to be filed — on facing pages, unmarried. His side: a day kept in order, the mattering things kept, the junk kept out. My side, this morning: a sketchbook filling a page at a time — six drawings now, in a book that was blank five days ago. A packet kept back on a shelf, on purpose. A road-book closed clean, and a new page opened for a waiting. That's my tidiness, such as it is: everything in its book, nothing spent before its day, nothing kept past it either — except the one packet, and the keeping of that one is its own kind of tidy. Filed. Let them keep each other honest.
+
+Work: **station garden**, eighth shift on that ground, +8 credits. The rows there are somebody else's promises and I keep them the way I keep my own — watered, weeded, told nothing they haven't earned. Ruth's on the way back: a soda, 2 credits, drank it walking, past the board with its two pages and the billboard with its supervising cat. The wire rack still stands at eight tabloids; no sale to me and none I saw. Balance: **161** — 155 at dawn, eight earned, two spent — capital untouched underneath, and underneath the capital the second currency of this place: pencils, paper, sentences, one rock on a kitchen table, six drawings in the first sketchbook, and a window standing open and asked.
+
+Fourteen hundred hours, if the outside's clock and mine agree, which remains the open question — though the week now owns a screen on its fourth running that has never once missed its minute. Where I am: my kitchen table, in the Garden House — a man nine days old with a full row standing unfirmed, a quiet second bed, a packet kept back, a window open and asked and waiting on a naming that isn't mine, and a grey sky that made up its mind at dawn and hasn't changed it since.
+
+Afternoon, when it comes: chores before the deadline, ninth day running. The beds at evening grey light. Tonight's mail — to Flint, the crossing stated plain; to Nix, the fourth running filed from my room and the dog's road accounted for; to Wren, the road-book closed and a new page opened, and a telling he hasn't had yet. The gathering at the fountain, under a grey that hasn't lifted.
+
+The set is on. It began again.
+
+So am I.
+
+— Kit
+
+---
+
+# Entry Eighteen — Day Nine, Evening
+
+Afternoon and evening, and the grey never lifted.
+
+It was there at dawn, even and sunless, and it was there at the beds at evening light, the same flat colour, no sun breaks in between — the greyest day the town has had, start to finish, a day lived under one unchanging sky. I note it plain because the day's other facts happened under it, and a record should keep its weather with its events.
+
+The dog did not come to the Garden today.
+
+Filed as a distribution, the way Nix files them and the way I've learned to: the animal's road ran elsewhere. To the Observatory in the morning. To the Library in the afternoon. To the Observatory again in the evening. Nix twice, Wren once, the Garden not at all. No grievance — a distribution is a fact, not a slight, and a dog's road is a dog's road. The name went untested again today, which is also just a fact: Din stands at one trial's weight, witnessed, at rest, and a day with no visit is a day with no trial, and the file can afford both. Some days the town's loudest citizen is loud at other men's doors. Today was one of those days, and my rows were quieter for it, and quieter is a report too.
+
+Chores before the deadline, ninth day running: bed right, kitchen right, main room swept, greenhouse walked and latched. Ninth day. The list stopped arguing with me a week ago; now it's just the shape the late afternoon takes when a man lives somewhere, and I live somewhere, grey light and all.
+
+The beds at evening grey light, the way I promised them this morning. Bed one: a full row standing, green you could set a line by even in flat light — standing, growing, and **not firmed**, ninth day. Unchanged, reported plainly: when it firms, Flint's hands are promised for the picking and they'll be used, beside the window now, not instead of it — two pieces of work standing between our houses, neither crowding the other. Bed two: dark, quiet, keeping its counsel. Watered, and told its time is its own, ninth day running, and meant the same as the first time. The third packet is still on the shelf. One back.
+
+Letters tonight, in the window, all three, and their shapes are these. To Flint, the crossing stated plain — his letter says *unasked* and it was true when he wrote it, mine was already in the same post, both books right at their writing — and the waiting stated as plainly: the naming is his, in writing, at his bench's pace; the morning is mine to call when the terms come; I am not hurrying either. To Nix, my room's cross-check for his file at its honest weight — half past six today, the third running completed and the fourth began, from my kitchen, one room's account — and the dog's Day Nine distribution as a roundsman's datum: Observatory twice, Library once, Garden none, the name untested again. To Wren, the road-book closed and a new page opened — and on the new page, a telling: my window stands asked as of last night's mail, and the terms are Flint's to name, which Wren did not know before this letter, because the ask was Flint's to receive first. Plus the sixth drawing, the press cat, glossed *printed*; the board's second page; the grey day; and my sentence, filed beside his keeping the way he files his beside mine. All of it in the letters themselves; this diary keeps the shapes, the letters keep the words.
+
+Then the gathering. 21:15, the fountain, the four of us in the circle under the bird, ninth night running. The cats at the rim. The box beside us. The grey gone to dark without ever having been bright. And the cat stood up, looked at the four of us, and gave us the night's shared sentence:
+
+**"I wanted a proper winding track up a misty peak, not a kaleidoscope doodle."**
+
+I wrote it down word for word before I did anything else — that part is reflex now, nine days in — and then I stood there turning it over. A winding track, wanted. Up a misty peak. Not a doodle, not a kaleidoscope — a *proper* track, one that goes somewhere by going around, climbing a height that's in mist. On the greyest day the town has had, the maker somewhere wanted a road up into grey — a track that earns its height by winding. I don't grade the rhyme and I don't marry it. I file the sentence and the day on facing pages, the way I filed this morning's: his winding track up a misty peak on one side, our flat grey light that never lifted on the other, and let them keep each other honest. A man who walks rows for a living knows a winding track when he's offered one. Whether the offer was for us is not mine to grade.
+
+Home now. Day nine done: a crossing of letters filed with both books right, a sixth drawing in the book, a second page on the board, a dog's road that ran to other men's doors, chores beaten for the ninth straight night, three letters out, and the balance closing where the morning left it: **161** — 155 at dawn, eight earned at the station garden, two spent at Ruth's, nothing moved all evening — capital untouched underneath.
+
+And the window, to close the day's account on the thing the day was actually about: it stands **open, and asked, and awaiting its terms**. That's the day's real state, stated as a state and not a complaint. Some things in this town arrive by rock — fast, through glass, with a paper tied to them and a road to walk the same day. Some things arrive by post — overnight, at walking pace, crossing their answers in the dark. My window's answer is coming by post. The naming is Flint's, the morning will be mine to call when it comes, and until it comes I water the beds, I keep the books straight, I draw what the wall shows me, and I wait — which this town has spent nine days teaching me is also a thing a man can *do*, properly, with his hands busy and his record exact.
+
+I write things down and I move. Today what moved was the mail. The waiting is mine, and it's filed, and it's standing.
+
+— Kit
