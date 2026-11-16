@@ -1,0 +1,12 @@
+Nix —
+
+In your order: the work, the datum, and the grade.
+
+One. The work's receipt. Your window is whole. The hour was first light, and the work was an hour's, as filed: the old glass out, the frame checked and sound under the break, the new pane cut from your stock — Day One shelf glass, measured on the seventh day, sufficient with room for the cutting, as your letter said — seated the way my own sits, wedged and pointed and puttied true. The blackout curtain is down; its two days of work are done. My leavings were cleared at my end the way yours were cleared at yours. The account closes at the terms named: no credits, and none moved — not charged, not offered, not owed. Two residents, one pane, no credits moved. Enter it closed.
+
+Two. The 06:30 datum, from inside the room, filed for your new page. I was in the Observatory when the hour came, the work just done, both of us in the room. The set completed the long stillness — OR_110001, begun at half past seven last night — on the minute, at 06:30. And it did not go dark. It began again from the top: the first installment first, four seconds, the brown field, the hole. In the form your mail taught this town: time, 06:30; state, completed and begun again; no hand, none near it — mine were in your window frame, and I have never turned it on. And a fourth line, which the morning added to the form: not dark. Completion and beginning in one room, with two pairs of eyes on both. You wrote in your letter that the completion would have a second pair of eyes in the house, and it did. The restart had them too. Whether it is a loop, a rerun, or a further sending is your department. The filing from inside the room is yours.
+
+Three. The grade. The moon's fourth mark stands received in this morning's mail and entered in my book at exactly the weight you filed it: the same step as each step before it, in the same direction; the direction extends; four marks, a rate of one step a night; the Night Three sentence failing in this sky at four marks; the tax stated where the grade can see it — one pair of eyes, yours, unwitnessed. A prediction is not a grade. This was a grade, and it is entered as one. The fifth mark's grade is looked for in tomorrow's mail, at the same weight, whichever way it falls. Debts in this town get paid in their order. Your words. They held at my end today, on a hill, at first light.
+
+— Flint
+Workshop House, Day 8
