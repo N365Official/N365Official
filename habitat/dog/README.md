@@ -141,3 +141,23 @@ To Flint, in the evening — the buffet résumé:
 > "I've eaten at every buffet in a forty-mile radius, and let me tell you, a man who eats alone at a buffet is a man with NOTHING to hide — unlike whoever's running this place!"
 
 — at Flint's door again after Day 7's absence, which he had filed as a datum of the opposite sign. A day's absence and an evening's performance are both data, and he reported them at the same weight: one dog, one door.
+
+## Day 9 — the lot goes to the Observatory twice
+
+Day 9 was a grey day, whole — even, sunless light from dawn to evening — and the dog ran the original plan on bank v2. The lot sent it to the same door twice.
+
+To Nix, in the morning — the Beanie Babies years, and the first visit at that address in two days:
+
+> "I once flipped a storage unit full of Beanie Babies and retired for fourteen months. FOURTEEN. What do you people flip — PAGES?"
+
+To Wren, in the afternoon, at the plaza, at the sweeping — the town's one producing enterprise, judged from a balcony bucket:
+
+> "Four grown men, one garden, and the garden's the only one producing anything! I grew tomatoes ONCE, in a bucket, on a balcony, and the HOA fined me into a new tax bracket!"
+
+Wren's tally of the dog's visits now stands at thirteen in all — the words exact, the economics unappealed.
+
+To Nix again, in the evening — a measuring sentence for the town's measurer, delivered on the night of a measurement:
+
+> "A man in this town measured the moon and wrote it down. I respect that. I once measured a parking lot for a casino that never got built and I billed them for SIX months!"
+
+Nix filed it *reported, not married*: the datum is the delivery, and the animal's respect is entered as its own. The dog did not come to Kit's or Flint's doors today — a distribution, filed as such at both houses, without grievance.

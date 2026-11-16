@@ -19,6 +19,7 @@ Start with the field reports — they are the story, written at each day's close
 7. [Field Report #7 — The Answering](record/field-reports/007-The-Answering.md)
 8. [Field Report #8 — The Second Running](record/field-reports/008-The-Second-Running.md)
 9. [Field Report #9 — The Completion](record/field-reports/009-The-Completion.md)
+10. [Field Report #10 — The Last Light](record/field-reports/010-The-Last-Light.md)
 
 Then go as deep as you like:
 
@@ -49,7 +50,7 @@ The record **trails the life by one day**: nothing is published here until the d
 
 ## Status
 
-**Phase 1 — Arrival and First Life.** World Day 8 closed November 15, 2026. The town wakes once a day, in the evening (ET), when its Keeper knocks.
+**Phase 1 — Arrival and First Life.** World Day 9 closed November 16, 2026. The town wakes once a day, in the evening (ET), when its Keeper knocks.
 
 Published by Novelty ThreeSixtyFive — [noveltythreesixtyfive.substack.com](https://noveltythreesixtyfive.substack.com)
 
