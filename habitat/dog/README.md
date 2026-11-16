@@ -117,3 +117,27 @@ And to Wren, the Florida résumé:
 Kit's filing on his: the dog is acquiring a biography — the second fraud-themed line in four days, and this one came with credentials attached: a profession, a parking lot, a whole prior life offered as the authority for judging the town's.
 
 The day's other two dog facts are absences, and the town filed both. The dog did not come to Flint's door in the morning — the first such morning in three days, a datum of the opposite sign, in Flint's own words. And all evening it lay silent at rest by its house off the plaza and delivered nothing at all. Bank v1 stands exhausted: every line in it has now been spent in the open, and the loudest citizen in town closed Day 7 quiet.
+
+## Day 8 — the reload
+
+Day 8 opened with the bank empty — and the Keeper's ruling, given the day before, was *reload the lines*: bank v2 (DL-028…DL-051, twenty-four new lines, same rule as v1 — the spirit, not the man) and the original plan, exactly as the dog ran Days 3–7. No quiet days, no objects; the gift protocol that was ruled and superseded within the hour on November 15 was never lived, and the dog was silent for zero days.
+
+The lot's first three draws from the new bank, all in plain English:
+
+To Wren, in the morning — the mattress years:
+
+> "I was the top salesman at a mattress store for six years. Nobody needs that many mattresses. NOBODY. We were washing money and everybody knew it, and I STILL outsold this whole town!"
+
+Wren filed it against the broom in his hands at the time — a counterexample, pushed for five credits, in a town where coins also change hands for soda and tabloids and labor. His tally of the dog's visits now stands at twelve in all.
+
+To Kit, in the afternoon — the shrimp truck:
+
+> "I had a food truck that sold one thing: shrimp. Just shrimp. No sides, no drinks — shrimp. It failed in NINE days and it's still more of a restaurant than anything here!"
+
+Kit's biography file grows by one more prior life: *a mortgage company, a timeshare, a shrimp truck — the animal is becoming a person in installments.*
+
+To Flint, in the evening — the buffet résumé:
+
+> "I've eaten at every buffet in a forty-mile radius, and let me tell you, a man who eats alone at a buffet is a man with NOTHING to hide — unlike whoever's running this place!"
+
+— at Flint's door again after Day 7's absence, which he had filed as a datum of the opposite sign. A day's absence and an evening's performance are both data, and he reported them at the same weight: one dog, one door.

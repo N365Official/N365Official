@@ -54,3 +54,30 @@ Design note: on Day 5, Flint dismantled the dog by checking its claims. The circ
   Gloss (record-side): "Hey, carpenter! I sold three-legged chairs in three states and called it modern art! You're the only honest man in this town, and that scares me!" — the setting-apart flattery of DL-017, returned in a language he cannot check, about the stool he cannot forget. Whether it lands as noise, insult, or praise is unknowable to him. That is the point.
 - **DL-027 → Nix, at the Observatory door (Mandarin):** "看星星的！我以前在内华达卖假望远镜！你那些星图，我闭着眼睛都编得出来！星星根本不知道你叫什么！"
   Gloss (record-side): "Star-watcher! I used to sell fake telescopes in Nevada! Those star charts of yours — I could make them up with my eyes closed! The stars don't even know your name!"
+
+## Line bank v2 (DL-028…DL-051) — loaded Nov 15, 2026, on Ant's ruling (event log #0105)
+Bank v1 closed on Day 7, exhausted (DL-001 and DL-003 the last two spent). Ant's word, Nov 15 ~12:37 PM ET: "Reload the dog lines" — clarified ~12:39 PM ET: reload the lines to go with the original plan for the next day. Twenty-four new lines, original, written in the Dillon manner under the same rule as v1 — the spirit, not the man; never quotes, never attributed. The dog runs the original plan, exactly as it ran Days 3–7: up to three drive-bys a day, target and line drawn by seeded lot, line spoken at the resident's door, logged in the event log. No objects, no deliveries — the gift protocol ruled at #0103 was superseded before it was ever lived (event log #0105). Lines below stand unspent except the three Day 8 draws, marked as drawn.
+- DL-028 "I sold gold coins on a TV channel at 3 AM to insomniacs and retirees, and even THOSE people had a better financial plan than this town!"
+- DL-029 "I leased a BMW with money I did not have just to sit in traffic like a KING — that's called PARTICIPATING in society!"
+- DL-030 "I've eaten at every buffet in a forty-mile radius, and let me tell you, a man who eats alone at a buffet is a man with NOTHING to hide — unlike whoever's running this place!" (Drawn by lot for Day 8, evening → Flint; staged, seed 20261130)
+- DL-031 "My cousin ran a fireworks stand, a bail bonds office, AND a wedding chapel out of the same trailer. One building, three revenue streams. You people have six houses and no business model!"
+- DL-032 "I paid eleven hundred dollars for a course that taught me how to sell courses. That's the only honest business left in America and nobody here is doing it!"
+- DL-033 "Somebody leaves rocks through windows and nobody calls the cops? I got arrested for a POOL PARTY. This town has NO law enforcement, and I respect it professionally!"
+- DL-034 "I once flipped a storage unit full of Beanie Babies and retired for fourteen months. FOURTEEN. What do you people flip — PAGES?"
+- DL-035 "That fountain? Standing water, no permits, no lifeguard — in Florida that's a lawsuit with a VIEW. I know, because I owned the lawsuit!"
+- DL-036 "Everybody in this town writes everything down. EVERYTHING. I've been audited twice and I didn't keep this many records — because records are EVIDENCE, people!"
+- DL-037 "I had a food truck that sold one thing: shrimp. Just shrimp. No sides, no drinks — shrimp. It failed in NINE days and it's still more of a restaurant than anything here!" (Drawn by lot for Day 8, afternoon → Kit; staged, seed 20261130)
+- DL-038 "You think I don't see the letters? Everybody's got a pen pal and nobody's got a stamp. I ran a mail-order business out of a prison library — I KNOW volume when I see it!"
+- DL-039 "I was the top salesman at a mattress store for six years. Nobody needs that many mattresses. NOBODY. We were washing money and everybody knew it, and I STILL outsold this whole town!" (Drawn by lot for Day 8, morning → Wren; staged, seed 20261130)
+- DL-040 "Four grown men, one garden, and the garden's the only one producing anything! I grew tomatoes ONCE, in a bucket, on a balcony, and the HOA fined me into a new tax bracket!"
+- DL-041 "Have I been to the moon? No. But I got scammed by a man who said HE had, and I bought TWO tickets. That's called being a patron of the arts!"
+- DL-042 "Nobody tips here! I once tipped a valet with a counterfeit twenty and he THANKED me — that's more gratitude than this town has shown a working dog!"
+- DL-043 "I had a crypto guy. HAD. He lives in international waters now. You people trade in rocks and windows and you think I'M the unstable one?"
+- DL-044 "A man in this town measured the moon and wrote it down. I respect that. I once measured a parking lot for a casino that never got built and I billed them for SIX months!"
+- DL-045 "I don't trust a place where the loudest sound is a bell. Where's the TRAFFIC? Where's a guy screaming about his boat payment? This is not a town, it's a WAITING ROOM!"
+- DL-046 "I've delivered things in this town I can't explain and I don't ask questions — I was a courier for a man in Tampa who paid in cash and hubcaps. CASH AND HUBCAPS."
+- DL-047 "You ever try to LEAVE this place? I walked the road out of town and it just — ended. I've seen timeshare presentations with better exits!"
+- DL-048 "I am the only one here who has ever had a BOSS. A real boss — a boat, a temper, and a lawyer on retainer. You people answer to a BELL!"
+- DL-049 "Twenty years I spent in sales and I never closed anything as hard as this town closes at night. Lights out, doors shut — like everybody's hiding from a process server!"
+- DL-050 "I'll say it: the dog house is the nicest property in this town and I don't even pay rent. That's not luck, that's LEVERAGE, and none of you have it!"
+- DL-051 "When I go, I want my ashes scattered over a casino buffet. You people will write yours down in a little book and FILE it. That's the difference between us!"
