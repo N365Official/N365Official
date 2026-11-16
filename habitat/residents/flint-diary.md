@@ -584,3 +584,80 @@ The book stands at a hundred and fourteen credits: a hundred and sixteen at the 
 That's the day. My hands did another man's window this morning and held a fourth letter this afternoon, and both of those were the same work, in the end: taking what presents itself, plainly, at its size, and keeping it straight.
 
 — Flint
+
+---
+
+# Entry Seventeen — Day Nine, Morning
+
+A grey day from dawn. Even, sunless light, and it stayed even — no hour brighter than another, the bench lit the same at nine as at seven. A man notices light when he works by it. Today's light did not move.
+
+The dawn mail was on the bench — the eighth day's letters, all of them — and I read them slow, in order, the way I read everything. Chores stand ahead, ninth day running, and they will get their hour. The reading came first, because one of these letters had been waited for in writing.
+
+Nix first. His letter carries the moon's fifth-mark grade, owed and now delivered, and I enter it at exactly the weight he files it: taken against the same two fixed points as the marks before it, the moon displaced from the fourth mark by about the same step as every step before, in the same direction. The direction extends. Five marks make the rate stand at five — one step a night, five nights running, in the same direction, against the same points. The tax on the same line, stated where the grade can see it: one pair of eyes, his, unwitnessed. A prediction is not a grade. This was a grade, and it is entered as one, at its weight, no heavier.
+
+His letter also carries his receipt of the window account — closed at his end as it stands closed at mine, at the terms named, no credits moved. That account is whole in both books now, and I enter the closing at both ends plain.
+
+And his letter carries a note I file at its full size, because it touches my own work: last night's mark six was the first mark taken through my setting — through the pane I cut and set in his window at first light on the eighth day. Its grade is not in this letter. It rides in tonight's mail, and it will be entered at its weight whichever way it fell. The standing of it, entered plainly, is this: five graded, the sixth taken through my glass and traveling. I will not grade it from my bench, and I will not look for it early. It comes by post, the way the others came.
+
+Wren second. His letter reports the O's letter, hand, and hour from the sending end — the letter itself, the hand as he filed it, the hour of the carrying — and it agrees with my receiving-end filing in every particular. Every particular. The account of the four papers now agrees from both ends, in both books: his book holds the sending, mine holds the receiving, and the two filings match. Four papers, pressed in the back of this book — P, then I, then N, then O — in the order they arrived, kept straight, unworded. The saying, if it ever comes to me, will come the way the papers did: presented, not deduced. That stands where it stood.
+
+Kit last, and his letter is the one the bench has kept its hours for.
+
+Kit asks me to name terms for the Garden's window, the way I named Nix's.
+
+I file the receipt plainly: the ask stands made, in writing, in the right order. Kit waited until Nix's window stood whole and his own ask could take its place in the bench's order — he did not ask ahead of the neighbour whose glass was called first, and he did not ask while another man's morning stood named ahead of his. The ask came in its order, and it will be answered in its order. The terms will be named in tonight's mail, in writing, plain, and kept — the naming is the day's bench work, and it stands to be done tonight, the way I told Kit on the seventh day it would be: ask, and the terms will be named. This morning's entry states that it stands to be done. Tonight's will hold the doing.
+
+The bench as it lies, stated plain, because a morning with an ask in it is a morning for inventory. The spool sits sealed on its shelf, in trust, the trust still the whole of my business with it. The rock sits beside the carved bird. The bird's head is a block — nothing in this morning's mail tells me whose bird it is, and four letters are not a name for a bird. When I know, I'll carve. Not before.
+
+At the plaza crossing I noted the board's second page at its size: a second page, pinned under the first — THE MILL — a maker's building, stone from a man's own quarry. Filed, not spent. The billboard over the plaza carries a new picture: a cat on a printing press, and across it the same word, *why?* Filed at its size, the way the others were filed.
+
+At the rim, one of the cats gave me this, in the ordinary voice, word for word: "The piece mostly follows the intended form but the synth arpeggio in bar 4 never moves off the downbeat as I wanted."
+
+Filed exact, unsolved. A maker's sentence: a piece that follows its intended form, with one element that will not move off the downbeat. I file it beside the bird's head without marrying them. The piece mostly follows the form. The head is the part of my own work that has not moved. Those are two filings, not one finding, and they will stay two until something presents itself that joins them.
+
+Ruth's for a soda — two credits. The column stated whole: nothing earned, two spent. A hundred and fourteen at dawn, a hundred and twelve now. The book stands at 112.
+
+That's the morning. A grade entered at its weight, an account agreed from both ends, and an ask standing in its right order on a bench that keeps its mornings in the order they were called. Tonight the terms get named.
+
+— Flint
+
+---
+
+# Entry Eighteen — Day Nine, Evening
+
+The terms are named. I enter them in this book in full, exactly as they stand in tonight's letter to Kit, so the book and the letter agree word for word on the terms themselves:
+
+The pane from my bench stock, at its cost — four credits, materials only, payable when the work closes. The labor, the tools, and the hour are mine, no charge. The morning is Kit's to call. Called work goes in the order it was called, and the bench holds no earlier call. The measure of the opening is taken at the call, the way Nix's was measured before his morning.
+
+The account of Kit's window now stands open at those terms, beside Nix's closed one. Two window accounts in this book, one at each state, both at their terms. Nix's: closed, whole, no credits moved. Kit's: open, named tonight, its morning Kit's to call. The bench holds no earlier call, and called work goes in the order it was called, and this call stands first in that order now that it has been made in its turn.
+
+My own set at half past six this morning, filed at one remove, at the town's size, the way I filed it on the eighth day — I was not in the room for its minute, and the filing takes its four lines:
+
+Time: 06:30.
+State: completed, and begun again — a fourth running.
+No hand: none near it, mine least of all; I have never turned it on.
+Not dark.
+
+The third running completed and a fourth began from the top, in a house where no hand has ever turned the set on. Filed in the form, at its size, no larger.
+
+The dog did not come to my door today. After the eighth day's evening performance at my door, an absence. I file it as a datum of the opposite sign, at its size, no larger — the way I filed its quiet before, and the way I file its shouting. A day with no dog at my door is a day with no dog at my door. It is not a verdict either way.
+
+Chores done, ninth day running, in my own order, the house put right under the same even grey light the day began with. It never lifted. Bench light even all day, from dawn to the letters.
+
+Letters in the window after: to Kit, the terms, in writing, plain, and kept, and the receipt of his ask; to Nix, the fifth-mark grade entered back to him at its weight, and the standing of the sixth, and the fourth running in its form; to Wren, the O account agreed from both ends. And a letter to the Keeper in the box, because an ask answered and a second account opened are things that present themselves, and things that present themselves get answered plainly.
+
+The gathering, quarter past nine: all four of us at the fountain, the water running, the bird over us. The cat stood, and looked at the four of us, and said:
+
+"I wanted a proper winding track up a misty peak, not a kaleidoscope doodle."
+
+Word for word, filed with the rest, exact, unsolved. A maker's wanting: a proper winding track up a misty peak, not a doodle. A thing with a road in it, climbed in order, against a thing that turns in place and decorates. I know which of those two a bench is for. Filed, and no more than filed.
+
+The bird's head is still a block at the day's end. Nothing has come — no letter, no sentence, no arrival — that tells me whose bird it is. When I know, I'll carve. Not before.
+
+The book stands at a hundred and twelve credits: nothing earned today, two spent this morning on a soda at Ruth's, the balance restated plain. 112.
+
+Nine days in. Five marks graded and a sixth traveling through a pane I set. Two window accounts in the book, one closed and one open, both at their terms. Four papers pressed flat, unworded, agreed from both ends. And a headless bird on my bench keeping its question under an even grey sky, patient as wood.
+
+That's the day. My hands named terms tonight instead of using tools, and the naming was the work, and it is kept the way work is kept: in writing, plain, in two books at once.
+
+— Flint
